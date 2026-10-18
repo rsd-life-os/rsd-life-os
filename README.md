@@ -1,10 +1,25 @@
 # RSD Life OS
 
-**A complete life operating system, as an Agent Skill.**
+**You know exactly what to do — and still can't make it happen. The same conflict keeps replaying in your closest relationships. Money comes and goes and never stays. You've read the books, understood every concept, and nothing changes.**
 
-Compiled from the book *RSD Life OS* (《RSD人生优化系统》) by **Gu Yang (RSD Kin)**, this skill turns the book's framework into something an AI agent can actually run: six named tools, three cosmic laws, three identities, four journeys, and the 2=1+1 Dao/Li lens — each with a stated purpose, an operating procedure, and a failure mode.
+This skill was built for those moments.
 
-This is not a summary. It is a toolkit.
+It is a complete life operating system, compiled from the book *RSD Life OS* (《RSD人生优化系统》) by **Gu Yang (RSD Kin)**: six named tools, three cosmic laws, three identities, four journeys, and the 2=1+1 Dao/Li lens — each with a stated purpose, an operating procedure, and a failure mode.
+
+Not motivation. Not concepts. A **toolkit** — procedures you run when you're stuck.
+
+## What it answers
+
+| The question you're actually asking | What the skill runs |
+|---|---|
+| "Why does the same thing keep happening to me?" | RSD Analysis Tool — read the pattern's form, name the energy sustaining it (ch 2) |
+| "I'm stuck / everything is falling apart" | RSD Rebuilding Tool — R→S→D: own it, see it, act with the flow (ch 7) |
+| "I can't stop spiraling" | RSD Awakening Tool — reposition from object of thought to sovereign (ch 6) |
+| "I'm drained, reactive, can't sleep" | RSD Charging Tool + Observation Tool (ch 8) |
+| "Should I do this?" | Navigation Tool — +1/−1 calibration, tested against the three laws (ch 9) |
+| "Why can't we just get along?" | ch 11 — emotion, conflict, communication |
+| "Why is money so hard to keep?" | ch 12 — wealth as the receipt of altruistic value |
+| "What's my direction in life?" | Four Journeys: self-cultivation → family → duty → world (ch 10) |
 
 ## Install
 
