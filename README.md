@@ -6,11 +6,13 @@
 - **Empty, anxious, no sense of security** — it helps you fully rebuild your confidence.
 - **Practicing, but can't find the door** — it lets you instantly understand the true meaning of humanity's nine bodies of ultimate wisdom.
 - **Chasing health, chasing blessings** — it tells you the truth about attaining great Merit Assets.
-- **Household in constant conflict** — it tells you the truth about home.
+- **Household in friction — strained bonds, rebellious children** — it teaches you how to heal it.
 - **In debt, money hard to earn** — it teaches you how to turn your life around.
 - **Business owner, things getting harder** — it tells you where the way out is.
 - **Afraid of AI** — it teaches you to ride AI and be its master.
 - **Addicted to smoke, drink, games, phone-scrolling** — it teaches you how to let the addiction go back the way it came — for good.
+
+These nine kinds of people are, at root, one and the same problem: no matter how hard you try, things never turn out the way you want. Why? Because your direction is all wrong — and so is your method.
 
 This is not just a book. It is your life optimization system — your Underdog Code.
 
@@ -20,9 +22,15 @@ Through more than forty years of experience and research, the author found that 
 
 The same goes for life. Not everyone must cultivate and prove their way to awakening before applying it to living. Simply remember and follow what earlier generations have already verified — no need to spend vast time and energy on repeated trial and error, tempering yourself through affairs. My hope: do not be like me — understanding all this only in old age, when it is too late, the will willing but the strength gone. If only I had known these things from childhood... That is how you skip decades of detours and realize your life's value ahead of time.
 
+Human beings are a special species created by the cosmos — the managers of the three-dimensional world, manifestations of the cosmic Energy Body. But people are born not knowing this. Whether you can shoulder the great responsibility and achieve something depends entirely on your own cognitive awakening. The cosmic system has a strict selection mechanism: before you are entrusted with a great mission, heaven will first temper your will — making you hit wall after wall, fall into one predicament after another, so that you grow anxious, lost, even desperate, searching and groping for hope through round after round of despair. Every device is used to make you awaken.
+
+Life is like playing a game. Every time you hit a wall, the game starts over — life after life, reborn again and again, always beginning from zero: growing again, erring again, groping again. In each life, most of your time and energy is wasted "tempering yourself through affairs," erring and trial-and-error over and over. If you awaken to the truth, you will achieve success and fame. The more heart-wrenching part: by the time you awaken, you are already old, already without the strength. If you never awaken, you can only keep suffering, keep waking up — but the vast majority never awaken at all.
+
+Little do you know: the knowledge, experience, and skills of all your past lives are stored in your "cloud drive" — they have become your *Innate Knowledge and Ability*. You simply do not know how to download or invoke them. And *RSD Life OS* is the "cheat code" that pulls you out of this death loop. It directly recovers your "amnesiac memory" — turning the cosmic truths earlier generations verified into wisdom you can call up at any moment.
+
 It is not a new religion, philosophy, or school of thought — still less a path of personal insight like the School of Mind or the School of Principle. You need not pore over classics until your hair turns white, still less cultivate and prove your way to awakening. It is a plug-and-play rapid-awakening tool, fully stripped of religion, mysticism, philosophical speculation, and politics. By simplifying the complex, it aims to give every ordinary person a cognitive framework for understanding and applying the "crystallized wisdom of humanity" — to let you fully understand what "everything I need is already prepared for me" truly means, and to put all things to work for you.
 
-The book distills six practical tools for optimizing life — each one a carry-on instrument for whatever reality throws at you.
+The book **also** distills six practical tools for optimizing life — each one a carry-on instrument for whatever reality throws at you.
 
 ## What it answers
 
