@@ -1,6 +1,6 @@
-<!-- Source: E:/Buddy/My Files/rsd-life-os/RSD Life OS.docx | paragraphs [1388..1559) | Part: PART THREE -->
+<!-- Source: E:/Buddy/My Files/rsd-life-os/RSD Life OS.docx | paragraphs [1366..1528) | Part: PART THREE -->
 
-# Ch 9 — The Energy Navigator: Managing Your Merit Account
+# Ch 9 — The Energy Navigator—Managing Your “Merit Account”
 
 ### Chapter 9: The Energy Navigator—Managing Your “Merit Account”
 
@@ -8,7 +8,7 @@ After mastering the basic tools for maintaining physical and mental energy, we n
 
 #### 9.1 The Core Model: The “Total Merit Asset” Determining Your Life
 
-Consider the part of your “Karmic Cloud Disk” that records merit energy as your personal cosmic energy “bank account.” Every single asset and the “total asset” in this account are the cumulative result of all your past energy deposits and withdrawals. It directly determines your current quality of life and future trajectory.
+Consider the part of your “Karmic Cloud Drive” that records merit energy as your personal cosmic energy “bank account.” Every single asset and the “total asset” in this account are the cumulative result of all your past energy deposits and withdrawals. It directly determines your current quality of life and future trajectory.
 
 Operating Rules
 
@@ -16,39 +16,47 @@ Positive Energy = Deposit (Increase Merit): Every thought, word, and deed that i
 
 Negative Energy = Withdrawal (Decrease Merit): Every thought, word, and deed that is selfish, harmful to others, unjust, or malicious is a deposit of negative energy into your account, equivalent to withdrawing positive energy, thereby reducing your “Total Merit Assets.”
 
+In-Depth Analysis: Why Does Self-Interested Behavior “Steal” Your Good Fortune?
+
+If you always feel unlucky, that nothing goes smoothly, and that you cannot make money, it is very likely that some seemingly trivial “self-interested behaviors” are quietly draining your Merit Assets: playing clever, haggling over trifles, always angling for small advantages, thinking only of yourself; refusing to let others off when you are in the right, making things hard for others, shirking responsibility when problems arise, gossiping behind people’s backs, envying others’ success… Each of these sends the universe a signal of “I want to take,” not “I want to give.”
+
+From the perspective of the Law of Cause and Effect, selfishness is in essence taking and possessing. The moment your behavior becomes having others give to you or serve you, you must pay an equivalent amount of energy in exchange—just as you must pay when you buy something. If you take the goods and pay nothing, and even have the other party pay you, that is “encroachment”; the cosmic system will then forcibly deduct from your “Merit Account,” and deduct double.
+
+Therefore, every self-interested act of yours is a kind of “debt.” Not only will countless ancestors behind you block the energy out of fear of being implicated, but the cosmic system will automatically deduct your merit energy assets, increase your bad assets and negative manifestations, and thereby affect your fortune. This is the iron law of heaven: “the more you take, the more you lack; the more you give, the more you abound.”
+
 The Energy Amplification Effect: Your Behavior is an “Energy Amplifier”
 
 Please instantly understand this law of the “Energy Amplification Effect”: Every one of your behaviors has a built-in “energy amplifier.” The multiplier of this amplifier is directly determined by the number of people affected and the degree of impact caused by your behavior.
 
 Positive Amplification: The more people your behavior serves or helps, and the greater the positive change it brings, the larger the value of “positive energy” or “positive assets” you deposit this time. A kind thought benefiting one person is a small deposit; a good deed benefiting many is a massive deposit.
 
-Negative Amplification: Similarly, the more people your behavior harms or cheats, and the deeper the pain and loss caused, the larger the value of “negative energy” or “negative assets” you deposit this time, leading to a more severe overdraft. A malicious thought harming one person is a small withdrawal; a harmful action disrupting society leads to a massive overdraft of merit assets, and its backlash will be more swift and severe.
+Negative Amplification: Similarly, the more people your behavior harms or cheats, and the deeper the pain and loss caused, the larger the value of “negative energy” or “negative assets” you deposit this time, leading to a more severe overdraft. A malicious thought harming one person is a small withdrawal; a harmful action disrupting society leads to a massive overdraft of Merit Assets, and its backlash will be more swift and severe.
 
 RSD Kin must possess a broader perspective and deeper reverence. Your responsibility should not be limited to yourself and your immediate family but should extend to your team, society, and even all beings. Simultaneously, this reveals that any behavior harming others for self-interest or damaging public interests is the most foolish and unprofitable “investment” in the world.
 
-Life State Determined by “Total Assets”
+Life State Determined by “Total Merit Assets”
 
 The state of your “Merit Account” will directly manifest as your practical life:
 
-When “Total Assets” are extremely high positive (Substantial Merit):
+When “Total Merit Assets” are extremely high positive (Substantial Merit):
 
-Internally: Abundant energy, inner peace, sharp intuition, powerful willpower, filled with confidence and composure.
+Internally: Abundant energy, inner peace, sharp intuition, powerful Focused Will, filled with confidence and composure.
 
-Externally: Help from benefactors, good relationships, many opportunities, easy success. Prone to great wealth and honor, smooth career, family harmony, health, and safety. Able to turn misfortune into blessing, avert danger, easily achieve desires, and have everything go smoothly. Can obtain greater authority to “act on behalf of the heavenly way,” becoming a “chosen one” who benefits the masses.
+Externally: Help from benefactors, good relationships, many opportunities, easy success. Prone to great wealth and honor, smooth career, family harmony, health, and safety. Able to turn misfortune into blessing, avert danger, easily achieve desires, and have everything go smoothly. Can obtain greater authority to “act on behalf of the Heavenly Way,” becoming a “chosen one” who benefits the masses.
 
-When “Total Assets” are zero or near zero (Average Merit):
+When “Total Merit Assets” are zero or near zero (Average Merit):
 
 This is the state of most people in the world. Life is neither particularly good nor bad, with joys and sorrows, times of smooth sailing and times of hardship. One can maintain a livelihood through hard work but finds it difficult to achieve great success or breakthroughs, and also avoids major disasters. A life of ordinary happiness and peace.
 
-When “Total Assets” are negative (Severe Merit Overdraft/Debt):
+When “Total Merit Assets” are negative (Severe Merit Overdraft / Heavy Debt):
 
-Internally: Weakened energy, inner anxiety, poor judgment, weakened willpower, filled with a sense of powerlessness and lack of confidence.
+Internally: Weakened energy, inner anxiety, poor judgment, weakened Focused Will, filled with a sense of powerlessness and lack of confidence.
 
 Externally: Few benefactors, few opportunities, poor relationships, many disasters and difficulties, turning good fortune into misfortune, everything goes wrong, desires unfulfilled, trouble arising from nothing, bringing trouble upon oneself, wealth difficult to accumulate, debt, poverty, a hard life, frequent illness and disaster, incomplete physical/mental health, plagued by disease, unbearable pain, family discord, family ruin and loss of life. A life of hardship, bad luck, illness, and career decline. Its essence lies in a severe overdraft and deficit within Merit Account.
 
-However, such individuals are also “backup candidates” chosen by heaven. All the manifestations of “negative assets” are trials, excellent opportunities for “asset reorganization” bestowed by heaven. If one can face each “heavenly test” calmly and transform it into altruistic action, one can clear old debts while accumulating massive merit assets.
+However, such individuals are also “backup candidates” chosen by heaven. All the manifestations of “negative assets” are trials, excellent opportunities for “asset reorganization” bestowed by heaven. If one can face each “heavenly test” calmly and transform it into altruistic action, one can clear old debts while accumulating massive Merit Assets.
 
-This is the true meaning of the ancient sayings: “One side Buddha, one side demon,” “Great good and great evil coexist,” “Lay down the butcher’s knife and immediately become a Buddha,” “A prodigal son who returns is more precious than gold”—through immediate awakening and responsibility, one can gradually obtain greater authority to “act on behalf of the heavenly way,” ultimately transforming from a “backup candidate” into a “chosen one” who benefits all beings.
+This is the true meaning of the ancient sayings: “One side Buddha, one side demon,” “Great good and great evil coexist,” “Lay down the butcher’s knife and immediately become a Buddha,” “A prodigal son who returns is more precious than gold”—through immediate awakening and responsibility, one can gradually obtain greater authority to “act on behalf of the Heavenly Way,” ultimately transforming from a “backup candidate” into a “chosen one” who benefits all beings.
 
 Instant Conclusions
 
@@ -98,11 +106,11 @@ When determined as “Withdrawal (-1),” do not blame yourself. Immediately act
 
 Tool Value: RSD Navigation Tool is the “dashboard” for your energy world. Through continuous, instant feedback, it greatly enhances your sensitivity to your own energy. Persistent use will enable you to automatically avoid most negative energy behaviors, entering a virtuous cycle of “automatic appreciation” in life.
 
-#### 9.3 Two Major Taboos: Eradicate “Material Misappropriation” and “Spiritual Deception”
+#### 9.3 Two Major Taboos: Eradicate “Material Encroachment” and “Spiritual Deception”
 
 After clearly understanding the operating laws of the “Merit Account,” we must establish two major taboos. Violating these taboos is equivalent to maliciously overdrawing from your Merit Account. The resulting energy deficit will inevitably manifest in your future reality as career stagnation, broken relationships, health damage, or deeper confusion.
 
-9.3.1 The First Major Taboo: Strictly Forbid Selfish Material Appropriation
+9.3.1 The First Major Taboo: Strictly Forbid Selfish Material Encroachment
 
 Precise Definition: Any act of appropriating or possessing material goods or items from others/society with the aim of satisfying personal interests, involving minimal or no effort, including accepting non-essential (for survival) free items.
 
@@ -116,7 +124,7 @@ Precise Definition: Attempting to “place an order” with the universe to dema
 
 Common Behaviors: Blindly misusing the “Law of Attraction,” attempting to exchange “small investment” actions for high returns and virtue, and merely fantasizing about results without giving substantive altruistic action.
 
-Energy Principle & Consequence: The fundamental laws of the universe are “altruism” and “value exchange.” When your wish stems from the selfish, greedy, lacking “small self,” your energy frequency is contracted, demanding, closed off. This is completely misaligned with the universe’s fundamental frequency of expansion, giving, and openness, unable to resonate. This fantasy of “only wanting to get, unwilling to give” is equivalent to attempting spiritual fraud at the energy level. Not only does it fail to manifest, but this “fraudulent” intent will add “negative assets” to your Virtue Account, lowering your “Total Merit Asset,” leading you into the dilemma of “the more you seek, the less you get” in reality.
+Energy Principle & Consequence: The fundamental laws of the universe are “altruism” and “value exchange.” When your wish stems from the selfish, greedy, lacking “small self,” your energy frequency is contracted, demanding, closed off. This is completely misaligned with the universe’s fundamental frequency of expansion, giving, and openness, unable to resonate. This fantasy of “only wanting to get, unwilling to give” is equivalent to attempting spiritual fraud at the energy level. Not only does it fail to manifest, but this “fraudulent” intent will add “negative assets” to your Merit Account, lowering your “Total Merit Asset,” leading you into the dilemma of “the more you seek, the less you get” in reality.
 
 This is also the truth revealed in the Diamond Sutra: “If a bodhisattva comprehends the Dharma of non-self, the Tathagata says that person is truly a bodhisattva.” True comprehension and power originate from the altruism of “non-self”; if motives are mixed with self-interest, one has already deviated from the right path and naturally cannot accumulate true merit. This is also why many people find the “Law of Attraction” inaccurate: what is sought must benefit others, not oneself.
 
@@ -126,149 +134,129 @@ Therefore, from material to spiritual, any form of “taking advantage”—whet
 
 #### 9.4 Your Daily Practice: Are You Doing It Right?
 
-Have you ever asked yourself: why did the ancient sages of Confucianism, Buddhism, and Daoism all advocate Selfless Altruism? Why did Mao Zedong put forward “serving the people wholeheartedly”? The mission of everything that exists in the cosmos is altruism — that is the cosmic Law of Behavior. Altruism divides in two: Mutually Beneficial Altruism and Selfless Altruism. Mutually Beneficial Altruism benefits yourself along with others: merit and fault offset each other, and the merit is slight. The supreme merit and virtue of all belongs to Selfless Altruism. It carries no self-serving aim: you do not reckon what you did, you do not reckon by what means, you do not reckon whom you helped, you do not reckon your return, and you do not reckon the result. It is a natural, pure, instinctive, wholehearted giving. Whether Mutually Beneficial or Selfless, either way you must first provide value and service to others — and only then does the system of cause and effect settle the account and give you your return. First the cause, then the effect; first the giving, then the receiving. Both require that you give first. So which do you choose — with self, or without? Of course you choose Selfless Altruism, where the merit is beyond all reckoning. Right?
+Have you ever wondered: why do the ancient sages of Confucianism, Buddhism, Daoism, and other traditions all advocate “Selfless Altruism”? Why did Mao Zedong propose “Serving the People Wholeheartedly”? The mission of the universe and all things is to benefit others; this is the universe’s Law of Behavior. Benefiting others is divided into benefiting others with a self and benefiting others without a self. Benefiting others with a self is self-benefiting altruism, in which merit offsets fault and the blessing is very small. The supreme great blessing and great merit belong to Selfless Altruism—that is, without any self-serving purpose: not reckoning what you did, by what means, for whom, for what return, or what result; a natural, pure, instinctive, wholehearted giving. Whether it is altruism with a self or altruism without a self, you must first provide value and services to others, and only then will the cause-and-effect system settle with you and reward you: cause first, effect after; giving first, receiving after. Either way you must give first. Which do you choose? With a self or without? Surely you choose Selfless Altruism, whose merit and blessing are inconceivable—right?
 
-The reverse is also true. If you demand the result first, the nature of your act changes into taking for yourself. It is the energy-draining behavior of selfishness, and it will dissipate your energy. Your act has not only failed to fulfill the calling of Selfless Altruism and violated the Law of Behavior — it has also violated the Law of Cause and Effect. Wanting “something for nothing,” wanting to “come out ahead,” wanting to “grab and gamble” — all of it is an attempt to encroach on and take another’s energy. The cosmic system will not only deduct from your Merit Assets; it will penalize you, increase the manifestation of your inferior Merit Assets, and affect the course your life takes from here.
+Conversely, if you want the result first, the nature of your behavior becomes self-serving grasping—a selfish, energy-consuming act that causes your energy to dissipate. Your behavior not only fails to fulfill the heavenly duty of Selfless Altruism and violates the Law of Behavior, but also violates the Law of Cause and Effect. Wanting to “get something for nothing,” to “take advantage,” to be “greedy and opportunistic,” is always an attempt to encroach on and take others’ energy: the cosmic system will not only deduct your Merit Assets but also punish you, adding bad assets to manifestation and affecting your future prospects.
 
-In one line: encroach, and you pay the price doubled.
+One Sentence to Instantly Understand: if you encroach, you will pay the price doubly.
 
-What follows takes apart the ten most common everyday behaviors, one by one, so you can compare. Look and see whether you have been doing all of them wrong — every one of them a self-serving act of taking that violates the Heavenly Way. This is the truth about “seeking and not getting”: no one is going to satisfy these selfish personal appetites.
+Next, let us take apart the eight most common behaviors of daily life one by one, and compare: are we doing them all wrong, all as self-serving grasping that violates the Heavenly Way? This is the truth behind “seeking and never obtaining”—no one will satisfy these selfish personal desires.
 
 9.4.1 Burning Incense and Worshipping the Buddha
 
-The essence of burning incense and worshipping the Buddha is reverence, praise, and inheritance of the sages who came before.
+The essence of burning incense and worshipping the Buddha is reverence for, praise of, and transmission of the earlier sages.
 
-But many people treat faith as a transaction of interests — seeking comfort, seeking something to lean on, seeking wealth, seeking safety, seeking a marriage, seeking health, seeking good luck. They use incense and worship to demand a return: I give you my devotion, I offer you incense, I kneel to you — and you give me my return. It is like buying a lottery ticket: spend 100 and hope to win 10 million. Isn’t that a little greedy?
+But many people turn faith into an exchange of interests, seeking comfort, a sense of belonging, wealth, safety, marriage, health, or good fortune; they seek returns through burning incense and worshipping: “I offer piety, I burn incense for you, I kneel to you—so you give me a return.” It is like buying a lottery ticket: spending 100 yuan hoping to win 10 million—is that not too greedy?
 
-The Buddha made this plain long ago in the Diamond Sutra: “If anyone sees me in form or seeks me in sound, that person is practicing a mistaken path and cannot see the Tathagata.” The warning to the world is this: do not seek outward, and do not sink into superstition.
+The Buddha long ago made it clear in the Diamond Sutra: “Those who see me in form, or seek me in sound, practice a deviant path and cannot see the Tathagata.” It warns the world: do not seek outside, do not be superstitious.
 
-The Internationale puts it in song: “There has never been any savior, nor do we rely on gods or emperors! To create human happiness, we rely entirely on ourselves!” That is the truth of the cosmos. If you know who you are — if you know that you are the unceasing Energy Body of the cosmos, that you are the Tathagata — would you still be found begging from yourself?
+The Internationale sings: “There has never been any savior, nor gods or emperors! To create human happiness, we must rely on ourselves!” This is the truth of the universe. If you know who you are, know that you are the ever-renewing Energy Body of the universe, and know that you are the Tathagata—would you still “pray to yourself”?
 
-If you will not fulfill the mission of Selfless Altruism, will not offer your own value and service to others, and will not pay the equivalent energy — but instead burn incense and worship the Buddha in order to demand results directly and get what you wish for — isn’t that just cutting corners and hoping for something for nothing? It is asking the divine to break its own law and open a back door for you, to take a shortcut for you. Isn’t it? And who, exactly, is going to satisfy these selfish appetites of yours? That is the whole point.
+Not to fulfill the mission of “Selfless Altruism,” not to offer others your own value and services, not willing to pay equivalent energy, but instead to demand results directly through incense and worship to realize your wishes—is this not opportunism, is it not wanting something for nothing? This is asking the deities to break the law knowingly and help you go through the back door, to take a shortcut—is it not? Who would dare satisfy these selfish desires of yours? Is that not the logic of it?
 
-9.4.2 Eating Meat or Vegetables
+9.4.2 Eating Meat or Eating Vegetarian
 
-If you treat eating vegetables as compassion and eating meat as creating karma and killing, that is a one-sided understanding of life.
+If you regard vegetarianism as compassion and eating meat as creating karma and killing, that is a one-sided understanding of life.
 
-The First Law of the cosmos is to stay alive. To stay alive, every being must take in energy. Slaughtering food animals for the survival and health of yourself, your family, and others is the guarantee of survival. Raising, hunting, slaughtering, and selling in order to make a living — these are the right to survival that the cosmos grants every being. They are the survival law of all things, and the normal ecological behavior of the food chain. Where is the crime in that?
+The first law of the universe is to stay alive. All beings must absorb energy in order to live. Slaughtering edible animals for the survival and health of oneself, one’s family, and others is a guarantee of survival; raising, hunting, slaughtering, and selling for a livelihood are survival rights granted to all beings by the universe, the Law of Survival of all things, the normal ecological behavior of the food chain—what fault is there in that?
 
-Human beings are omnivores by nature. Whether you eat meat or vegetables is decided by race and natural conditions, by personal constitution and eating habits. If you “eat vegetables” out of reverence for life, consider this: every being has life — those with form and those without, those with perception and those without, neither with nor without perception — and plants and their seeds are no exception. How many grains of seed do you consume in a single meal? How many lives do you sacrifice? How many microorganisms do you kill when you boil a kettle of water? Have you ever counted? Isn’t this a departure from any essential understanding of life — a fall into a one-sided attachment?
+Human beings are omnivores by nature; eating meat or vegetables is determined by race, natural conditions, individual constitution, and dietary habits. If you “eat vegetarian” out of reverence for life, do you not know that all beings have life, including the formed and the formless, the thoughtful and the thoughtless, the non-thoughtful and the neither-thoughtful-nor-thoughtless—let alone plants and their seeds. How many seeds do you eat in one meal, and how many lives are sacrificed? How many microorganisms are killed when you boil a kettle of water—have you ever counted? Have you not departed from the essential understanding of life and fallen into a one-sided fixation?
 
-True compassion is not agonizing over whether what is on your plate is meat or vegetable. It is reverence for and kindness toward all life — no wanton killing, no cruelty, no waste. It is gratitude for every portion of energy that nourishes your life, gratitude to those who provide your food, gratitude that you are alive at all. And from there, it is to give your time and energy to holding the ecology, nature, and all beings in existence and balance — to shoulder more responsibility for your family, for society, for your “realm,” and to offer more altruistic value and service, and so complete the mission of your life.
+True compassion is not agonizing over whether the meal on your plate is meat or vegetarian, but revering and treating all life well—not killing indiscriminately, not abusing, not wasting; being grateful for every portion of energy that nourishes our lives, grateful to those who provide the food, and grateful that we can live. Then devote your time and energy to maintaining the continuation and balance of the ecology, nature, and all beings, to bearing more responsibility for your family and your society and for your “realm,” to offering more altruistic value and services, and to fulfilling your life’s mission.
 
-9.4.3 Reciting Sutras and Mantras
+9.4.3 Reciting Sutras and Chanting Mantras
 
-Reciting sutras and mantras can quiet the mind, empower you, and adjust your physical and mental state. But if you treat it as a way to “clear karma and trade for merit,” its nature changes completely — it becomes a “back door” for tampering with the cosmic settlement system, for rewriting the ledger of merit and fault, for wiping out every “debt” and every “inferior Merit Asset.” Would the cosmos really contain a loophole that obvious?
+Reciting sutras and chanting mantras can calm the mind, confer empowerment, and adjust one’s body-mind state. But if it is treated as “erasing karma and exchanging for blessings,” its nature changes completely—it amounts to “going through the back door” to tamper with the cosmic settlement system, to revise the “ledger of merit and fault,” and to wipe out all “debts” and “bad assets.” How could the universe contain such an obvious loophole?
 
-Certain scriptures in particular list out a “menu” of benefits said to come from recitation — almost anything you could ask for. Commit evils and errors that would keep you seeking release for “countless millions of kalpas,” and reciting sutras and mantras will speed you straight past them and annihilate the bad karma. This self-contradictory way of “settling debt” violates not only the Law of Cause and Effect but the Law of Behavior as well — it does not advocate Selfless Altruism; it is extreme self-interest, a grave violation of the Heavenly Way.
+In particular, some scriptures set out “lists” of the various benefits obtainable by reciting them, covering almost everything. Even evil deeds and faults that incur “kalpas of countless eons with no hope of release” can, through reciting sutras and chanting mantras, be instantly transcended to sacred ground and have evil karma eradicated. This self-contradictory way of “repaying debt” not only violates the Law of Cause and Effect but also violates the Law of Behavior—it does not advocate “Selfless Altruism” but extreme self-interest, gravely violating the Heavenly Way.
 
-If reciting sutras and mantras could redeem the dead, avert disaster, and trade for peace and happiness, health and long life, wealth, merit, and plenty of food and clothing — if it could trade for everything, could “take the shortcut,” could even make you an emperor — is that possible? Of course not. At root it is nothing but a personal appetite for getting something for nothing, dressed up as a way to get what you want. Think about it: if it really worked, who would still honor their parents? Who would still do the work? Who would still labor and create, and provide value and service to others? And if everyone behaved this way, how would you survive? Where would your food, clothing, shelter, and transport come from? Who would be willing to support anyone else? What would you eat?
+If by reciting sutras and chanting mantras one could redeem the dead, avert disasters, and exchange for peace and happiness, health and longevity, wealth, merit, and abundant food and clothing—exchange for everything, “take a shortcut,” or even become an emperor—is that possible? Of course not. Its essence is nothing but the satisfaction of a personal greed that wants something for nothing, the pursuit of some benefit. Think about it: if it were really so, who would still honor their parents? Who would still go to work? Who would still labor and create to provide value and services to others? If everyone were like that, how would you survive? Where would food, clothing, housing, and transport come from? Who would be willing to support others? What would you eat?
 
-The true purpose of reciting sutras and mantras is to repent, to correct your own words and deeds, to strengthen yourself, to increase your own energy, to make yourself more accountable — so that you can better practice the Heavenly Way and fulfill the mission of Selfless Altruism. It is not for taking, not for trading for private gain.
+True recitation of sutras and chanting of mantras is for repentance, for correcting one’s own words and deeds, for strengthening oneself, for increasing one’s own energy, for making oneself more accountable, and for better practicing the Heavenly Way and fulfilling the mission of “Selfless Altruism”—not for taking, not for exchanging for private gain.
 
-9.4.4 Paying Reverence and Making Offerings
+9.4.4 Reverence and Offering
 
-Paying reverence is, at root, respect, praise, and inheritance of the sages who came before. Making offerings is the help and support you give — from the heart, from instinct — so that another can stay alive and get through a hard time. It is the practice of the cosmic laws of Survival and Behavior, the fulfillment of responsibility and accountability. The merit is boundless.
+Reverence is originally reverence for, praise of, and transmission of the earlier sages; offering is the relief and assistance given from the heart and by instinct so that others may live and overcome hardship—it is practicing the cosmic Law of Survival and Law of Behavior, fulfilling responsibility and accountability, and its merit is immeasurable.
 
-If you treat reverence and offerings as a way to clear karma, increase merit, and accumulate virtue, the nature of the act changes into self-interest. Certain scriptures in particular list out, item by item, a “menu” of benefits said to come from reverence and offerings — turning it directly into a profit-making act of “trading for merit.” It has even spawned the burning of the tallest incense and the first incense, the offering of large sums of money, blind donation of wealth and goods, and even charity leaderboards, with people competing over how expensive their offerings are. The result is that some people scrimp and save, give away their entire life savings as an offering, and still blame themselves for giving too little.
+But if reverence and offering are treated as erasing karma, increasing blessings, and accumulating merit, their nature becomes self-serving. In particular, some scriptures list item by item the “catalog” of benefits obtainable through reverence and offering, turning it directly into a profit-making act of “exchanging for blessings”; this even breeds the practices of burning tall incense and first incense, offering large sums, and blindly donating money and goods—even charity rankings and comparisons of the cost of offerings. Some people skimp and save to donate all their savings as offerings, and still blame themselves for giving too little.
 
-The key point is this: once an offering is reduced to an “investment transaction” — once it becomes “trading for virtue, trading for merit, trading for wealth” — and once it is packaged as “charitable virtue,” it makes getting something for nothing, living off other people’s labor, and taking other people’s money seem “perfectly natural.” Once you understand this “transfer of wealth” for what it is, would you still hand over your money willingly? Would you still make offerings to others willingly?
+The key is this: when offering is reduced to an “investment transaction,” equated with “exchanging for merit, exchanging for blessings, exchanging for wealth,” and packaged as “charitable virtue,” the behavior of getting something for nothing, of sitting back and enjoying the fruits of others’ labor, and of taking others’ property becomes “a matter of course.” Once you understand the truth of this “transfer of money and goods,” would you still willingly take money out of your pocket for others? Would you still willingly make offerings to others?
 
-In fact, offerings made for self-interested taking violate the Law of Survival, betray the original intention, and violate both the Law of Behavior and the Law of Cause and Effect. They can only end in seeking and not getting.
+In fact, offering of this kind, done for self-serving grasping, violates the Law of Survival, departs from the original intention, and violates the Law of Behavior and the Law of Cause and Effect; it is bound to seek and never obtain.
 
-9.4.5 Protecting Life and Releasing Creatures
+9.4.5 Protecting Life and Releasing Life
 
-Caring for life, protecting and treasuring life, respecting the laws of nature, protecting the ecological environment, reducing wasted resources, and holding the ecological balance — this is the mission of every being, and it is the duty of altruistic conduct. Coming across a creature in distress and, by instinct, lending a hand on the spot — that is pure compassion, and the merit is boundless.
+To care for life, protect and cherish life, respect natural laws, protect the ecological environment, reduce the waste of resources, and maintain ecological balance—this is the mission of every being and the duty of altruistic behavior. When you happen upon a creature in distress and, by instinct, lend a hand to rescue it—that is pure compassion, and its merit is immeasurable.
 
-If you treat releasing creatures as a way to clear karma and increase merit, to seek virtue and seek a return, its nature becomes a utilitarian exchange — an act of self-interested taking that violates the essence of altruism.
+But if releasing life is treated as erasing karma, increasing blessings, seeking merit, or seeking reward, its nature becomes a utilitarian exchange, a self-serving grasping behavior that violates the essence of altruistic action.
 
-This kind of deliberate release — regardless of whether the species suits the local ecology — leaves the creatures unable to survive and damages the ecology instead. Buying creatures specifically in order to release them and “accumulate merit,” or even buying milk, mineral water, and grain to “release,” violates the Law of Survival and throws away the essence of protecting life altogether. Worse still, it leads vendors to catch creatures specifically so that others can release them, creating a profit chain. This kind of release — which is not the rescue of a creature you happened upon — damages the ecology, violates the laws of nature, achieves the opposite of what was intended, and diminishes your merit besides.
+Deliberate release of this kind, regardless of whether the species suits the local ecology, makes it hard for the creatures to survive and instead damages the ecology. Buying creatures specifically for release in order to “accumulate merit”—even buying milk, mineral water, or grain to “release”—violates the Law of Survival and loses the essence of protecting life. It even induces traders to catch creatures specifically for release, forming a profit chain. This sort of release, which is not a rescue on encounter, damages the ecology and violates natural law; the result is counterproductive and even diminishes merit.
 
-The Buddhist Association of China has stated explicitly that such conduct “deviates from Buddhist teaching, wastes resources, and damages the ecological environment.” At the level of law, releasing grain may violate the Anti-Food Waste Law, and releasing non-native species may violate the Biosecurity Law.
+The Buddhist Association of China has clearly stated that such behavior “departs from Buddhist teachings, causes a waste of resources, and damages the ecological environment.” At the legal level, releasing grain is suspected of violating the Anti-Food Waste Law, and releasing alien species is suspected of violating the Biosafety Law.
 
-True virtue lies not in the form but in the original heart — in the upholding of Selfless Altruism.
+True merit lies not in form but in the original heart—in the maintenance of Selfless Altruism.
 
 9.4.6 Doing Good and Accumulating Virtue
 
-The ancients said that doing one good deed a day can change your destiny. Is that really so?
+The ancients said that doing one good deed a day can change your destiny—is that really so?
 
-What is doing good? Doing good is providing value or service to all beings. It is Selfless Altruism, the cosmic Law of Behavior; it is the mission of everything in the cosmos. What modern people take “goodness” to mean, though, is a “kind heart,” “good intentions,” “donating money and goods,” “doing charity.”
+What is doing good? Doing good is providing value or services to all beings; it is the Selfless Altruism of the cosmic Law of Behavior, the mission of the universe and all things. Modern people, however, understand good as “a kind heart,” “good intentions,” “donating money and goods,” and “doing charity.”
 
-Doing good is altruism. It is also called giving, and it divides into giving of wealth, Dharma Giving, and giving of fearlessness. Whichever form it takes, as long as you seek no fame, seek no gain, seek no return, and seek no thanks — as long as you set it down once it is done and leave no trace behind — then it is the Formless Giving of which the Diamond Sutra speaks, whose merit is beyond all reckoning. That is what “doing good and accumulating virtue” truly means.
+Doing good is benefiting others, also called giving (dana), and it is divided into the giving of wealth, the giving of Dharma, and the giving of fearlessness. Whatever the kind of giving, so long as it seeks no fame, no profit, no return, and no thanks—help and then let go, leaving no trace—this is the Formless Giving whose merit the Diamond Sutra calls inconceivable, and only this is truly “doing good and accumulating virtue.”
 
-But when doing good is aimed at trading for merit, it turns into self-interested taking. The nature of the act changes; you have become attached to form. If you donate one million hoping to earn back ten million, then the moment you have that thought it is no longer an altruistic act. Even if you were to “fill three thousand great thousand worlds with the seven treasures and give them all away,” it would not buy you the merit you are after.
+But when it is done to exchange for blessings, doing good becomes self-serving grasping, the nature of the act changes, and one becomes attached to appearances. If you donate one million yuan hoping to earn back ten million, the very existence of that thought means it is no longer an altruistic act. Even “filling the three thousand great thousand worlds with the seven treasures and giving them away” would not buy you the merit you want.
 
-If a person does good in the hope of changing their fate and receiving a good return — hoping through “doing good” to trade for virtue, for merit, for wealth — they have turned “doing good” into a utilitarian exchange, a small stake played for a large one. And even if what they are after is a reputation, at root it is still attachment to “the mark of self,” still private gain, and it violates the cosmic laws of Behavior and Cause and Effect. As the Diamond Sutra puts it: “then he is not a bodhisattva” — and with that, the merit is gone.
+If a person does good deeds hoping to change their destiny and receive good returns, wanting to exchange “doing good” for merit, blessings, and wealth, then “doing good” has been turned into a utilitarian exchange of the small for the great. Even if what is sought is only reputation, its essence is still attachment to the “mark of self,” and it is still for personal gain, violating the cosmic Law of Behavior and Law of Cause and Effect. As the Diamond Sutra says, “then they are not Bodhisattvas,” and there is no merit at all.
 
-9.4.7 Setting the Heart and Making the Vow
+9.4.7 Forming Intentions and Making Vows
 
-The ancients said: “One great heart set forth outweighs a lifetime of cultivation through countless kalpas.” They held that the power of vow outweighs the power of intention, and the power of intention outweighs the power of karma — and that this can optimize your life.
+The ancients said: “Once a great heart is aroused, it surpasses kalpas of cultivation.” They held that the power of a vow is greater than the power of thought, and the power of thought greater than karma, and that this can optimize one’s life.
 
-Setting the heart is making the vow. What is a great heart? A great vow? It is a heart of altruism. First plan your own altruistic conduct: what value and service will you provide to others? Then declare your altruistic plan — the concrete steps, the wish, the intention — to the sages who came before, to your ancestors, to the divine. And from that you receive the empowerment of cosmic energy.
+Forming an intention is making a vow. What is a great heart? What is a great vow? It is the heart of benefiting others—first plan your own altruistic actions: what value and services will you provide to others? Then declare your altruistic plan, its concrete steps, and your wishes or thoughts to the ancestors, forebears, and deities, so as to receive the empowerment of cosmic energy.
 
-This is what the Buddha called “giving rise to the heart of supreme, universal, and perfect enlightenment.” Supreme — there is nothing above it. Universal — all beings are equal, with no discrimination. Perfect enlightenment — the awakening of no-self, awakening completely. It is the heart of Formless Giving, also called the Bodhi heart, the heart of the Bodhisattva.
+This is what the Buddha called “arousing the mind of supreme enlightenment” (the mind of unsurpassed, perfectly equal, and perfect enlightenment: “unsurpassed” means the very highest; “perfectly equal” means the equality of all beings, without a discriminatory mind; “perfect enlightenment” means the awakening of selflessness, complete awakening). It is the mind of “Formless Giving,” also called the Bodhi mind, the Bodhisattva mind.
 
-Remember the precondition: only a vow of Selfless Altruism is a great heart, a great vow. And only then is the result beyond all reckoning — obtained without being sought.
+Please remember the premise: only an intention of “Selfless Altruism” is a great heart and a great vow, and only then will the karmic fruit be inconceivable and obtained without seeking.
 
-Now look at the vows we set day to day — who are they aimed at? Every thought in the mind is private gain: more wealth, a healthy body, a happy marriage, everything going smoothly. All of it is taking — asking cosmic energy to fulfill and satisfy personal desire. This kind of taking-based vow asks this of the cosmos and that of the cosmos, hoping to encroach on and extract energy and value by getting something for nothing. It gravely violates the cosmic laws of Behavior and Cause and Effect. Would Heaven fulfill a vow of this kind?
+Look back at our daily intentions and vows—for whom are they made? In our hearts we think only of our own private interests: wanting more wealth, wanting health, wanting a happy marriage, wanting everything to go smoothly. All of it is taking, wanting cosmic energy to fulfill and satisfy personal desires. Such taking-oriented intentions and vows are asking the universe for this and that, trying to encroach on and obtain energy and value by “getting something for nothing,” gravely violating the cosmic Law of Behavior and Law of Cause and Effect. Will Heaven fulfill such self-serving, grasping intentions and vows?
 
-Only when you set your heart and make your vow for the better survival of others and of all beings — for the conduct of Selfless Altruism — do you accord with the Heavenly Way. Only then is it a true heart of supreme, universal, and perfect enlightenment. And only then do you receive the empowerment of cosmic energy, and find everything going smoothly.
+Only intentions and vows made for the better continuation of others and all beings, and for Selfless Altruism, accord with the Heavenly Way; only these are truly arousing the mind of supreme enlightenment, and only these obtain the empowerment of cosmic energy and see everything go smoothly.
 
-9.4.8 Renouncing the World to Practice
+9.4.8 Deliverance from Life and Death
 
-Many people’s practice has gone off in the wrong direction — they want to become a Buddha or an immortal, to live forever, and they lose sight of the value and the mission of a human life.
+Many people hope that through practice they can entrust beauty and bliss to death, to rebirth, to the next life, even exhausting the family fortune and giving up the accountability and responsibility of this life in pursuit of freedom from suffering and the attainment of bliss. Its essence is escape from reality, gravely violating the Three Cosmic Laws.
 
-Abandoning home and career, setting aside parents, wife, and children, giving up family and social responsibility — all in pursuit of personal attainment in practice — is at root an act of self-interested taking aimed at aggrandizing the self. It forgets that the purpose of practice is to walk the path of the Bodhisattva and realize the value of a human life.
+They do not realize that this life is an opportunity for optimization granted by Heaven according to the state of each Energy Body’s Merit Assets over many lifetimes; it is the best window of opportunity for completing self-transformation and the optimization of bad Merit Assets.
 
-True practice begins with getting clear on who you are. Then, through practice, you receive the empowerment of cosmic energy and grow strong — so that you can practice Selfless Altruism, walk the path of the Bodhisattva, serve more people, and carry the responsibilities that are yours to carry.
+If in the present, in this life, one refuses to bear accountability, refuses to overcome the various difficulties manifested by bad assets accumulated over lifetimes, refuses to fulfill the mission of “Selfless Altruism,” or deludedly thinks “the sooner I die, the sooner I am reborn,” then one is wasting the life and the opportunity Heaven has granted for this life.
 
-If you will not even treat your parents and family well, will not even carry the most basic responsibility, how can you claim to hold the world in your heart and practice Selfless Altruism?
+In this life, not only is the optimization of Merit Assets left unaccomplished, but because of passivity, inaction, grasping the branch and discarding the root, and violating the Heavenly Way, one is punished and adds new “liabilities.” If Heaven grants you another chance at life, your new script will only be harder and more difficult than this one. The responsibilities you evade in this life and the missions you leave unfulfilled must in the end be repaid by yourself; no one can hide from them or escape them. This is the inevitability of the Law of Cause and Effect.
 
-9.4.9 Being Liberated from Life and Death
-
-Many people hope, through practice, to place their beauty and their bliss after death — in rebirth, in the next life — and will even exhaust the family fortune and abandon the responsibilities of this life in pursuit of “leaving suffering and attaining happiness.” At root this is escaping reality, and it gravely violates the three Cosmic Laws.
-
-What they do not realize is this: this life is the opportunity for optimization that Heaven grants according to the Merit Assets each Energy Body has accumulated across lifetimes. It is the best window you will get to complete your own transformation and the optimization of your inferior Merit Assets.
-
-If, here and now, in this life, you refuse to take responsibility; if you do not overcome the difficulties that the manifestation of your lifetime-old inferior Merit Assets presents; if you do not fulfill the mission of Selfless Altruism — or if you fantasize about “dying early to be reborn sooner” — you are wasting the life and the opportunity Heaven has given you.
-
-Not only will you fail to optimize your Merit Assets in this life; you will be penalized for passivity, for inaction, for losing the root and chasing the branches, for violating the Heavenly Way — and you will add new “debt.” If Heaven grants you another life, your new script will only be more bitter and more difficult than this one. The responsibilities you evade in this life and the mission you leave unfinished will, in the end, still have to be repaid by you. No one can hide from it or escape it. That is the necessity of the Law of Cause and Effect.
-
-So: carrying the responsibilities of this life is the only path to optimizing your life.
-
-9.4.10 Sitting Meditation and Contemplation
-
-Through sitting meditation you can adjust your physical and mental health, activate the power of intention and your intuition, connect with environmental energy and cosmic energy, direct energy, and come into resonance — obtaining your Innate Knowledge and Ability and your talents.
-
-But if you hope to acquire some “supernormal power” through sitting meditation — the microcosmic orbit, the macrocosmic orbit, the heavenly eye, the return of the origin spirit, or even some kind of magic — then in an instant it becomes an act of self-interested taking. Contemplation and meditation carried by strong purpose and private interest is, at root, an amplification of “attachment to self,” and it is destined to end in seeking and not getting.
-
-Some people sit for years, for decades, and gain nothing at all. Set down greed, set down the small self, set down your attachments — return to stillness — and a few sessions may bring an unexpected gain.
-
-This is the true transmission of contemplation in a single line: the Great Way is utterly simple, and without desire there is strength.
+Therefore, shouldering the responsibilities of this life is the only path to optimizing your life.
 
 #### 9.5 The Path of Diligence: Daily “Asset Appreciation” Action Plan
 
 Managing assets emphasizes continuous action. Here is an immediately actionable “appreciation” checklist. Practice it consciously every day:
 
-Praise one person sincerely.
+Sincerely praise one person.
 
-Take on a share of a colleague’s or family member’s toil on your own initiative.
+Actively share the toil of colleagues or family members.
 
-Share valuable knowledge, or information carrying positive energy.
+Share valuable knowledge or messages of positive energy.
 
-Silently pick up trash on the road.
+Silently pick up litter on the road.
 
-Resist an impulse to lose your temper.
+Hold back an impulse to lose your temper.
 
 Sincerely forgive someone who has hurt you.
 
-Do one good deed anonymously.
+Do a good deed anonymously.
 
-Listen patiently while another person unburdens themselves.
+Patiently listen to others unburden themselves.
 
-Complete your own work conscientiously and responsibly.
+Conscientiously and responsibly complete your own work.
 
-Practice “use things fully, and leave nothing idle.”
+Practice “use everything to its full use, leave nothing idle.”
 
 #### 9.6 Asset Reorganization Actions: Operations to Clean Up Historical “Negative Assets”
 
@@ -276,7 +264,7 @@ We are not powerless against “negative assets” (old karma) accumulated from 
 
 Method One: Sincere Repentance—Terminate Debt Interest
 
-Conduct deep reflection and sincere repentance for past intentional or unintentional harmful behaviors, resolving never to commit them again. The essence of repentance is “correcting negative energy,” reducing the value of previous negative energy to its minimum influence  (but cannot zero it out or turn it positive), lowering the value of “negative assets.”
+Conduct deep reflection and sincere repentance for past intentional or unintentional harmful behaviors, resolving never to commit them again. The essence of repentance is “correcting negative energy,” reducing the value of previous negative energy to its minimum influence (but cannot zero it out or turn it positive), lowering the value of “negative assets.”
 
 Method Two: Offset Merit and Fault—Use Massive Deposits to Offset Old Debt
 
@@ -290,9 +278,9 @@ Method Four: Apply RSD Rebuilding Tool—Conduct Asset Optimization
 
 The above three are basic methods. RSD Rebuilding Tool you have already mastered is the most proactive, systematic, and efficient strategic tool for conducting “asset reorganization.”
 
-Function Positioning: RSD Rebuilding Tool is a complete set of “Personal Merit Asset Reorganization Operating Procedures.” When life difficulties arise (i.e., notification of “negative asset” manifestation), it guides you to proactively and precisely correct and replace the manifested “negative assets” into valuable “positive assets” through the RSD behavior principles.
+Function Positioning: RSD Rebuilding Tool is a complete set of “Personal Merit Asset Reorganization Operating Procedures.” When life difficulties arise (i.e., notification of “negative asset” manifestation), it guides you to proactively and precisely correct and replace the manifested “negative assets” into valuable “positive assets” through the RSD Behavioral Code.
 
-Energy Principle: This operation directly acts upon your “Karmic Cloud Disk.” Its essence is a highly efficient act of “negative asset write-off and positive asset entry” supported by cosmic laws (Heavenly Principles).
+Energy Principle: This operation directly acts upon your “Karmic Cloud Drive.” Its essence is a highly efficient act of “negative asset write-off and positive asset entry” supported by cosmic laws (Heavenly Principles).
 
 Strategic Value: It elevates you from passively “accepting retribution” or slowly “offsetting” to being the “Life CEO” capable of proactively initiating and precisely completing asset reorganization. You no longer wait for problems to appear; when they do, you can instantly transform them into a powerful opportunity for asset appreciation.
 
@@ -300,7 +288,7 @@ Integrating RSD Rebuilding Tool into your asset management means you possess th
 
 #### 9.7 The Ultimate Goal: From “Daring Not to Do Evil” to “Having No Need to Think Evil”
 
-Understanding the “Total Virtue Asset” leads to a fundamental upgrade in your cognition regarding “doing no evil”:
+Understanding the “Total Merit Asset” leads to a fundamental upgrade in your cognition regarding “doing no evil”:
 
 Primary Cognition: Dare Not Do Bad
 
@@ -318,7 +306,7 @@ The RSD Asset Management Engine You’ve Built:
 
 Glimpsed the Fundamental Laws: You mastered the “Merit Account,” this cosmic energy accounting system, seeing the energy truth behind all life’s fortunes and misfortunes, successes and failures.
 
-Grasped Two Core Taboos: You established the two ironclad rules of “Strictly Prohibit Selfish Material Appropriation” (energy possession) and “Strictly Prohibit Selfish Spiritual Demanding” (energy fraud), fundamentally plugging the main loopholes leading to malignant overdraft of virtue assets.
+Grasped Two Core Taboos: You established the two ironclad rules of “Strictly Prohibit Selfish Material Encroachment” (energy possession) and “Strictly Prohibit Selfish Spiritual Demanding” (energy fraud), fundamentally plugging the main loopholes leading to malignant overdraft of virtue assets.
 
 Acquired Appreciation & Reorganization Tools:
 
