@@ -79,7 +79,7 @@ Stated daily, these are what the person is choosing to reinforce:
 
 The behavioral arc, in order. Each is a precondition for the next.
 
-1. **Self-Cultivation (养身)** — the foundation of success.
+1. **Nurturing the Self (养身)** — the foundation of success.
 2. **Harmonizing the Family (家和)** — the energy foundation of success.
 3. **Fulfilling Responsibilities (尽责)** — the societal realization of success.
 4. **Benefiting the World (广济)** — the sublimation of success.
@@ -108,7 +108,7 @@ Load a chapter file only when the conversation needs it. Do not preload.
 | 15 | `chapters/ch15-new-civilization.md` | From the individual to great harmony: the civilization source code and a three-stage roadmap |
 | FC | `chapters/final-chapter.md` | Becoming the Light Source: the six tools recap, the three laws, three identities, the eternal vision |
 | — | `chapters/about-gu-yang.md` | About the author |
-| — | `chapters/fortune-note.md` | Fortune Optimization Note: sharing, Dharma giving, and the energy of giving and receiving |
+| — | `chapters/fortune-note.md` | Merit Optimization Note: sharing, Dharma giving, and the energy of giving and receiving |
 
 Supporting files, loaded on demand:
 
