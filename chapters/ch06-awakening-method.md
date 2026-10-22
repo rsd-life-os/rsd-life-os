@@ -1,6 +1,6 @@
-<!-- Source: E:/Buddy/My Files/rsd-life-os/RSD Life OS.docx | paragraphs [921..971) | Part: PART TWO -->
+<!-- Source: E:/Buddy/My Files/rsd-life-os/RSD Life OS.docx | paragraphs [901..952) | Part: PART TWO -->
 
-# Ch 6 — RSD Awakening Tool: The Core Tool for Awakening the Sovereign Identity
+# Ch 6 — RSD Awakening Tool—The Core Tool for Awakening the Sovereign Identity
 
 ### Chapter 6: RSD Awakening Tool—The Core Tool for Awakening the Sovereign Identity
 
@@ -10,17 +10,17 @@ This chapter delivers the second practical tool of RSD Life OS—RSD Awakening 
 
 It is the decisive tool for you to complete a fundamental identity switch, initialize the system daily, and instantly calibrate energy, connecting to energy at critical moments. It is the starting point for you, as “sovereign consciousness,” to exercise power; it is the ritual for you to sign an energy contract with the “Cosmic Self.”
 
-#### 6.1 Tool Positioning: Your Sovereignty Activator and System Master Switch
+#### 6.1 Tool Positioning: Your Sovereignty Reset Device and System Startup Switch
 
 The root cause of most people’s inner pain, powerlessness, and chaos is this: we have unknowingly handed over the sovereignty of our own lives. Do you often think “I = my thoughts” (e.g., “I am just kind-hearted,” “I am a short-tempered person”)? Are you accustomed to praying for blessings from external gods and Buddhas?
 
 The essence of these behaviors is that you mistake “thinking”—this minister—for the “emperor” and are willingly driven by it, even begging it for blessings and protection. This is a silent “palace coup.”
 
-RSD Awakening Tool is your “Sovereignty Awakening Switch” and “Awakening Trigger.” Its sole function is to help you instantly switch back from the “controlled” state to the “sovereign” identity.
+RSD Awakening Tool is your “Sovereignty Reset Device” and “Awakening Trigger.” Its sole function is to help you instantly switch back from the “controlled” state to the “sovereign” identity.
 
 #### 6.2 Core Principle: Awakening is an Energy Contract and System Command
 
-The “awakening” in RSD Awakening Tool is by no means ordinary psychological suggestion. It is an energy contract and system command based on the principles of the “Observer Effect” and “Willpower.”
+The “awakening” in RSD Awakening Tool is by no means ordinary psychological suggestion. It is an energy contract and system command based on the principles of the “Observer Effect” and “Focused Will.”
 
 It is an Energy Contract: Each awakening declaration activates your innate talent and intuition. It sends a clear energy signal to your “Three-Soul Cloud Drive” and the cosmic field, linking you to your “Innate Knowledge and Ability,” while driving and solidifying your identity as the “Sovereign Controller”.
 
@@ -50,11 +50,11 @@ Content: Clearly, powerfully, and with full conviction, speak or silently recite
 
 Core Awakening Phrase Bank (Please select according to scenario):
 
-Basic Identity Awakening: “I am [Your Name!”
+Basic Identity Awakening: “I am [Your Name]!”
 
-Ultimate Sovereignty Awakening: “I am RSD Kin, I am the master of the universe!”
+Ultimate Sovereignty Awakening: “I am RSD Kin, I am the Sovereign of the Universe!”
 
-Energy Synergy Awakening: “I resolve to [State your altruistic goal]. May this grand aspiration resonate with the Cosmic Essence, enabling me to better walk the Path of Heaven (Tian Dao).”
+Energy Synergy Awakening: “I resolve to [State your altruistic goal]. May this grand aspiration resonate with the cosmic ontology, enabling me to better practice the Heavenly Way.”
 
 Step Three: Energy Confirmation
 
@@ -66,13 +66,13 @@ When you awaken and declare “I am RSD Kin,” what you do goes far beyond self
 
 The “Vibrational Kin” is composed of all awakened souls throughout history who have lived out their sense of responsibility, gained insight into the ultimate truth, and dedicated themselves to the well-being of all sentient beings. It spans from the Sage-King’s Way of Yao, Shun, Yu, and Tang, to the ultimate wisdom of Confucius and Mencius, the Buddha, Tripitaka, Xuanzang, and Huineng, as well as Laozi and Zhuangzi. It encompasses the sacrifices and quests of Jesus and Socrates, along with countless unsung heroes. It is an ever-evolving energy field of collective consciousness—a vital force dedicated to the “existence and continuity” of the human race.
 
-Henceforth, you will bid farewell to spiritual isolation. You are a fellow traveler standing shoulder to shoulder with all sages throughout history who “practice the heavenly way.” This transcendent “spiritual synchronicity”, this mighty resonance from the “Vibrational Kin,” will become your deepest inner support, making you dare to be accountable, dare to confront all challenges.
+Henceforth, you will bid farewell to spiritual isolation. You are a fellow traveler standing shoulder to shoulder with all sages throughout history who “practice the Heavenly Way.” This transcendent “spiritual synchronicity”, this mighty resonance from the “Vibrational Kin,” will become your deepest inner support, making you dare to be accountable, dare to confront all challenges.
 
 #### 6.5 From External Seeking to Internal Confirmation: The Sole Behavioral Mode of Sovereignty
 
 This is the touchstone for testing whether you have truly confirmed your “sovereign” identity. It is to completely eradicate the external-seeking behavior of “praying” and “demanding.”
 
-Old Mode (Energy Beggar): “Please, Bodhisattva, bless me to get rich...” (Energy State: Selfish, humble, demanding)
+Old Mode (Energy Beggar): “Please, Bodhisattva, bless me to get rich…” (Energy State: Selfish, humble, demanding)
 
 New Mode (Energy Sovereign): “I am RSD Kin, I will use my talents to help more people!” (Energy State: Altruistic, confident, creative, powerful)
 
