@@ -1,6 +1,6 @@
-<!-- Source: E:/Buddy/My Files/rsd-life-os/RSD Life OS.docx | paragraphs [1951..2043) -->
+<!-- Source: E:/Buddy/My Files/rsd-life-os/RSD Life OS.docx | paragraphs [1923..2010) -->
 
-# Ch 13 — I Am the Feng Shui Master: Managing Environmental Energy
+# Ch 13 — I Am the Feng Shui Master—Managing Your Environmental Energy
 
 ### Chapter 13: I Am the Feng Shui Master—Managing Your Environmental Energy
 
@@ -8,11 +8,11 @@ We often seek methods to change our destiny externally, overlooking the most fun
 
 #### 13.1 Instantly Understand the Essence of Feng Shui: You and Your Environment are in an Energy Interaction
 
-We are not Feng Shui experts, nor do we need to delve into its complex schools and rules. We do one thing: use RSD Analysis Tool, the “Dao-Li Perspective Glass,” to instantly through the essence of Feng Shui and transform it into practical knowledge about energy interaction for our use.
+We are not Feng Shui experts, nor do we need to delve into its complex schools and rules. We do one thing: use RSD Analysis Tool, the “Dao and Li Perspective Lenses,” to instantly through the essence of Feng Shui and transform it into practical knowledge about energy interaction for our use.
 
 13.1.1 Feng Shui is an Interactive Phenomenon Between “Environmental Energy” and “Human Body Energy”
 
-Use the “Dao-Li Perspective Glass” for a quick scan of “Feng Shui”:
+Use the “Dao and Li Perspective Lenses” for a quick scan of “Feng Shui”:
 
 Whole (2): The “Feng Shui” phenomenon that concerns you.
 
@@ -32,11 +32,11 @@ Environmental form (Li) is the tool and condition for you to use, while your con
 
 Your Mind is the Most Efficient “Environmental Regulator.”
 
-Your emotions, thoughts, and willpower (Dao) are themselves powerful energy emission sources, continuously affecting your most immediate micro-environment (the energy field around you). Anxious, resentful thoughts pollute the environment, while peaceful, altruistic thoughts purify and elevate it. This is the true meaning of “The environment changes according to the mind.”
+Your emotions, thoughts, and Focused Will (Dao) are themselves powerful energy emission sources, continuously affecting your most immediate micro-environment (the energy field around you). Anxious, resentful thoughts pollute the environment, while peaceful, altruistic thoughts purify and elevate it. This is the true meaning of “The environment changes according to the mind.”
 
 Decision-Making Principle: Pursue Energy Resonance, Not Superstitious Form.
 
-The sole standard for RSD Kin to view the environment is: “Everything in the world is there for you to use,” “All things are for my use,” and “Man can conquer nature.” “Regardless of whether this environment (Li) resonates with my energy (Dao), I can command it to make me feel comfortable, peaceful, and creative.” Everything is based on your own energy feelings as the final criteria, rather than sticking to any fixed Feng Shui dogmas.
+The sole standard for RSD Kin to view the environment is: “Everything I need is already prepared for me,” “All things are for my use,” and “Man will conquer nature.” “Regardless of whether this environment (Li) resonates with my energy (Dao), I can command it to make me feel comfortable, peaceful, and creative.” Everything is based on your own energy feelings as the final criteria, rather than sticking to any fixed Feng Shui dogmas.
 
 After instantly understanding Feng Shui, RSD Kin leap from being “passive recipients” to “administrators” who discern the essence of energy. We are deeply aware that environment (Li) is an important influencing factor, but the decisive power always lies in our own energy state (Dao). From now on, you can respect the environment but are no longer trapped by it; you can optimize the environment but never become dependent on it.
 
@@ -48,11 +48,11 @@ Step One: Sovereignty Confirmation—I am the Manager of Environmental Energy
 
 Upon entering any space, first clearly awaken yourself in your mind:
 
-“I am RSD Kin, I am the master of the universe. I will activate RSD Charging Tool to infuse this space with harmony.”
+“I am RSD Kin, I am the Sovereign of the Universe. I will activate RSD Charging Tool to infuse this space with harmony.”
 
 (This step establishes your energy management authority over the environment, shifting from passive perception to active creation.)
 
-Step Two: Environmental Scan—Activate the “Dao-Li Perspective Glass” for Analysis
+Step Two: Environmental Scan—Activate the “Dao and Li Perspective Lenses” for Analysis
 
 Maintain a standing or sitting posture, and relax your body and mind. As if scanning your body, calmly feel the overall energy state of the entire environment (Whole-2), and use the “2=1+1” formula for rapid analysis:
 
@@ -76,7 +76,7 @@ Mentally recite: “Positive energy, empower me!”
 
 Exhalation (Energy Expulsion & Cleansing):
 
- Exhale slowly and deeply. Mentally visualize all chaotic, blocked, turbid energy (negative energy) in the space being completely expelled and dissipating into the void.
+Exhale slowly and deeply. Mentally visualize all chaotic, blocked, turbid energy (negative energy) in the space being completely expelled and dissipating into the void.
 
 Mentally recite: “Negative energy, stay away!”
 
@@ -110,7 +110,7 @@ Thus, you instantly understand an ultimate truth: You are the Feng Shui master.
 
 When you consistently apply the RSD system, your internal energy will undergo a qualitative change, cultivating what the ancients called “Vast, Flowing Vital Energy.” This is the most powerful “good Feng Shui” you can possess.
 
-Generation Principle: When the data in your “Three-Soul Cloud Drive” is pure (indicating substantial merit assets), and your mind consistently aligns with the Heavenly Way (through altruism, justice, and non-action), your body and mind will naturally radiate an upright, vigorous, bright, high-dimensional energy field. Simultaneously, you possess high abilities in energy orchestration and discernment.
+Generation Principle: When the data in your “Three-Soul Cloud Drive” is pure (indicating substantial Merit Assets), and your mind consistently aligns with the Heavenly Way (through altruism, justice, and Wu Wei), your body and mind will naturally radiate an upright, vigorous, bright, high-dimensional energy field. Simultaneously, you possess high abilities in energy orchestration and discernment.
 
 Feng Shui Effects:
 
