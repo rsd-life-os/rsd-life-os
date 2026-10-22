@@ -1,5 +1,7 @@
 # RSD Life OS
 
+**RSD Skill — install this life operating system into your AI.**
+
 **If any one of these is you, this was written for you:**
 
 - **Lost, without direction** — it points the way and tells you what to do.
