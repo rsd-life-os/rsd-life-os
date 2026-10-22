@@ -58,7 +58,7 @@ Each is a procedure with a stated purpose, an operating sequence, and a named fa
 | 5 | **RSD Observation Tool** — your "Body-Mind Manager" | Works with bodily discomfort and habits at the level of awareness, not resistance |
 | 6 | **RSD Navigation Tool** — your "Behavior Calibrator" | Marks every thought, word, and act +1 (altruistic) or −1 (self-only). No neutral entries |
 
-Underneath the tools stand the **three cosmic laws** (Survival · Behavior · Cause & Effect), the **three identities** (RSD Kin · Sovereign Ruler · Creator), and the **four journeys** (Self-Cultivation → Harmonizing the Family → Fulfilling Responsibilities → Benefiting the World).
+Underneath the tools stand the **three cosmic laws** (Survival · Behavior · Cause & Effect), the **three identities** (RSD Kin · Sovereign Ruler · Creator), and the **four journeys** (Nurturing the Self → Harmonizing the Family → Fulfilling Responsibilities → Benefiting the World).
 
 ## Install
 
