@@ -1,4 +1,4 @@
-<!-- Source: E:/Buddy/My Files/rsd-life-os/RSD Life OS.docx | paragraphs [2378..2385) -->
+<!-- Source: E:/Buddy/My Files/rsd-life-os/RSD Life OS.docx | paragraphs [2356..2363) -->
 
 # About Gu Yang
 
@@ -10,6 +10,6 @@ This is the land of the “Nezha Stirs the Sea” legend and, more significantly
 
 It was here that Emperor Gaozu of Han triumphed over Xiang Yu to establish the Han dynasty, and here that the first victory of the Xinhai Revolution toppled the imperial system and founded the Republic.
 
-In the chaos of the late Yuan dynasty, Ying Zu migrated here from Shandong, and the bloodline and thought of Mencius were preserved and passed down.
+In the turmoil of the late Yuan dynasty, Ying Zu moved here from Shandong, and the bloodline and thought of Mencius were passed down.
 
-The author left home at a young age. Now, as time passes, the longing for home only grows stronger…
+The author left his hometown in his early years. Now, the older he grows, the deeper his longing for it…
