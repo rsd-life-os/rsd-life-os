@@ -42,7 +42,7 @@
 | **RSD Kin** (RSD人) | One who, after cognitive awakening, practices Selfless Altruism — knows who they are and how to act. |
 | **I am the Sovereign Ruler** (我是主宰者) | Daily confirmation that awareness is emperor of thought and emotion, not their slave. |
 | **I am the Creator** (我是创造者) | Every present moment drafts the future — your own and the world's. |
-| **Four Journeys** (四大旅程) | Self-Cultivation → Harmonizing the Family → Fulfilling Responsibilities → Benefiting the World. Each is the next one's precondition. |
+| **Four Journeys** (四大旅程) | Nurturing the Self → Harmonizing the Family → Fulfilling Responsibilities → Benefiting the World. Each is the next one's precondition. |
 | **R (Reality \| Accountability)** | Step 1 of the behavioral code: confirm sovereignty, assume full responsibility. |
 | **S (Spirit \| Shattering Attachments)** | Step 2: perceive essence with the Analysis Tool, act immediately for others' benefit. |
 | **D (Dao \| Going with the Flow)** | Step 3: exhaust human effort, listen to heavenly mandate; follow Wu Wei. |
@@ -73,7 +73,7 @@
 | **Awakening Toolkit** | Chapter openings; the six tools as a set. |
 | **Universal Key** | The Analysis Tool's alias (ch 2). |
 | **Core Warning: Do Not Predict the Future** | ch 8.4; a hard limit of the whole system. |
-| **Material Misappropriation / Spiritual Deception** | ch 9.3; the two major taboos. |
+| **Material Encroachment / Spiritual Deception** | ch 9.3; the two major taboos. |
 | **Positive Track (+1) / Deviation Warning (−1)** | The Navigation Tool's two markings. |
 | **ferry boat / ferry you across** | ch 10.2; the family-as-ferry image. |
 | **Donating the Self** (捐我) | ch 14.3; the ultimate application of the Rebuilding Tool. |
