@@ -1,8 +1,8 @@
-<!-- Source: E:/Buddy/My Files/rsd-life-os/RSD Life OS.docx | paragraphs [603..773) -->
+<!-- Source: E:/Buddy/My Files/rsd-life-os/RSD Life OS.docx | paragraphs [591..761) -->
 
-# Ch 4 — Instant Insight into People, Things, and Events
+# Ch 4 — Instant Understanding of the People, Things, and Matters Around You—Perceiving All Truths
 
-### Chapter 4: Instant Insight into People, Things and Matters—Perceive All Truth
+### Chapter 4: Instant Understanding of the People, Things, and Matters Around You—Perceiving All Truths
 
 Dear friend, you have now obtained the “Universal Key”—RSD Analysis Tool. It is time to use it to open the many confusing doors in your life.
 
@@ -24,7 +24,7 @@ Did you instantly understand?
 
 Any single thing is like this apple, constituted by an inner, intangible “life energy” (Dao) and an outer, tangible “specific appearance and rules” (Li).
 
-Now, please use this method to look at your cup, phone, chair...
+Now, please use this method to look at your cup, phone, chair…
 
 Congratulations! You have completed your first practice of cognitive upgrade!
 
@@ -160,7 +160,7 @@ Now, let’s use the “Dao and Li Perspective Lenses” to clarify the boundari
 
 Consciousness = Dao (1) = The Sovereign of Life (Emperor)
 
-Its Identity: Is the emperor, is the subject, is the master, is the spirit, is the commander. It is the “original mind”—the knowing, perceiving entity sought in the Surangama Sutra’s “seven locations of the mind.” It is the commander of your “Essence, Qi, Spirit.”
+Its Identity: Is the emperor, is the subject, is the Sovereign, is the spirit, is the commander. It is the “original mind”—the knowing, perceiving entity sought in the Surangama Sutra’s “seven locations of the mind.” It is the commander of your “Essence, Qi, Spirit.”
 
 Its Authority: Is the source of beliefs, thoughts, oaths, declarations, proclamations, slogans, mental inclinations, intentions, focused will, Longing, concentration, attention. It is the unmoving observer and commander-in-chief. It issues commands through focused will and attention; it is the “prime mover” driving all thinking, thought, and behavior.
 
@@ -242,7 +242,7 @@ Now, please activate your “Principle Perspective Lens” for an ultimate scan:
 
 Whole (2): The Solar System—this holographic system.
 
-Dao (1):  Carrying Cosmic Energy
+Dao (1): Carrying Cosmic Energy
 
 The Sun’s Dao: Carrying the energy of the Cosmos and the Milky Way.
 
@@ -250,7 +250,7 @@ The Planet’s Dao: Carrying the Sun’s energy.
 
 The Moon’s Dao: Carrying the Planet’s energy.
 
-Li (1):  Operating Their Respective “Orbits” and “Duty”
+Li (1): Operating Their Respective “Orbits” and “Duty”
 
 The Sun’s Li: Leading the system to orbit the Milky Way, while incessantly, unconditionally burning itself, emitting light, heat, and other energies, illuminating all things.
 
