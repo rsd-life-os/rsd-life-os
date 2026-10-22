@@ -1,277 +1,287 @@
-<!-- Source: E:/Buddy/My Files/rsd-life-os/RSD Life OS.docx | paragraphs [1814..1951) -->
+<!-- Source: E:/Buddy/My Files/rsd-life-os/RSD Life OS.docx | paragraphs [1780..1923) -->
 
-# Ch 12 — Career & Wealth: Creating Value, Mastering Wealth
+# Ch 12 — Career & Wealth—Creating Value, Mastering Wealth
 
-### Chapter 12: Career & Wealth — Creating Value, Mastering Wealth
+### Chapter 12: Career & Wealth—Creating Value, Mastering Wealth
 
-These days it is getting harder and harder for ordinary people to make money — and from here on it will only get harder. That is where things are heading. First, goods are in oversupply: open your phone and everyone is selling something. You have no edge — so who are you going to sell to? Second, people have become rational spenders. Whatever policies come out, they no longer buy on impulse, and they no longer dare to spend on credit. Third, they bought their houses and cars in the past, and now they are paying off the monthly loans — there is not much left in their pockets. Fourth, foreign trade is blocked: fewer orders, less income, fewer jobs. Fifth, technology keeps advancing, and robots are replacing large numbers of jobs, so the demand for labour keeps falling. Sixth, operating costs keep rising and markets are saturated, which makes private enterprises and brick-and-mortar shops harder and harder to run. More and more people cannot find work, and have to forge their own path.
+Nowadays it is harder and harder for ordinary people to make money, and it will only get harder—this is the general trend. First, goods are in oversupply: open your phone and everyone is selling something, so without an advantage, whom will you sell to? Second, people are now rational consumers: whatever policies are introduced, they no longer consume impulsively and dare not spend beyond their means. Third, they bought houses and cars before and must now pay monthly installments, with little left in their pockets. Fourth, foreign trade is blocked: fewer orders, less income, less hiring. Fifth, technology advances and a great many jobs are replaced by robots, reducing demand for labor. Sixth, operating costs keep rising and the market is saturated, making it harder and harder for private enterprises and physical stores to survive, with more and more people unable to find work and forced to fend for themselves.
 
-But this is only the surface. As long as people are alive, they have needs, and they spend. The real question is: what product, service, or value can you offer someone else? If you can offer nothing at all, then of course you cannot make money.
+But this is only the surface. As long as people live, they have needs and consumption. The key is: what product, service, or value can you provide to others? If you can provide nothing, of course you cannot make money.
 
-Because smartphones are everywhere, some of the worst social behaviours have been magnified without limit. As a result, people’s instinct for self-protection keeps strengthening, their guard keeps going up, and they are becoming more and more “self-centred,” more and more “selfish.” Between people, the most basic thing of all has been lost: trust. Without trust, what transaction is even possible? Everyone wants to make money, and everyone is afraid of being cheated. Even if you have a good product or a good project, nobody believes you when you share it, nobody buys, nobody joins in. The more you praise it, the more they think you are running a con, and the less they believe you. The less people earn, the more they want to earn — and so they get taken in again and again, fleeced again and again, until in the end they believe nothing and dare do nothing. That is a vicious cycle, and it makes them earn even less.
+Because smartphones are now ubiquitous, certain negative social phenomena of the past have been magnified without limit, so people’s sense of self-protection keeps growing, their guard keeps rising, and people become ever more “self-centered” and ever more “selfish”; the most basic “trust” between people has been lost. Without trust, how can there be transactions? Everyone wants to make money and everyone is afraid of being cheated: even if you have a good product or a good project, when you share it no one believes it, no one buys it, no one does it. The more you say it is good, the more the other party feels it is a con and the less they believe it; the less everyone makes, the more they want to make money, and so they are cheated again and again and “harvested” again and again, until at last they believe nothing and dare to do nothing—forming a vicious circle in which it becomes even harder to make money.
 
-This is the real reason making money is so hard right now: selfishness, and the absence of trust.
+This is the real reason why making money is hard today: selfishness and the lack of trust.
 
-This chapter will equip you with a practical method for turning inner confidence into outer abundance in the realm of career and wealth. You will no longer chase money in a panic. Instead, you will rebuild trust and accumulate Trust Assets — and let wealth flow to you naturally.
+This chapter will equip you with a set of practical methods for transforming inner confidence into outer abundance in the field of career and wealth. You will no longer be anxious about chasing money; instead, by re-establishing trust and accumulating Trust Assets, you will let wealth flow to you naturally.
 
-#### 12.1 The Truth About Wealth: The “Energy Voucher” of Your Altruistic Value
+#### 12.1 The Truth of Wealth: The “Energy Voucher” of Altruistic Value
 
-Thousands of years ago, Confucianism, Buddhism, and Daoism had already said everything that needs saying about the essence of wealth.
+Thousands of years ago, Confucianism, Buddhism, and Daoism already explained the essence of wealth thoroughly.
 
-12.1.1 What Confucianism, Buddhism, and Daoism Say About Wealth
+12.1.1 Wealth as the Three Traditions See It
 
-On the truth of career and wealth, the three schools have long since made it plain:
+The truth about career and wealth was long ago stated plainly by the three traditions:
 
-1. Establish Others to Establish Oneself (Confucianism)
+Establishing Others to Establish Oneself (Confucianism)
 
-Confucius said: “If you want to establish yourself, help others to establish themselves; if you want to succeed, help others to succeed.” That is: if you want to achieve something, first help others achieve something; if you want to get ahead and prosper and grow rich, first help others get ahead and prosper and grow rich.
+Confucius said: “If you want to establish yourself, establish others first; if you want to succeed yourself, help others succeed first.”
 
-2. Formless Giving (Buddhism)
+That is: if you want to achieve something yourself, you must first help others achieve something; if you want to prosper and become wealthy yourself, you must first help others prosper and become wealthy.
 
-The Buddha said: “If a bodhisattva gives without dwelling on form, the merit gained is beyond measure.” That is: benefit others with a selfless mind, and the merit you receive is limitless. If, when you do good and help others, you do not cling to thoughts like “I am doing a good deed,” “I want something back,” or “that person is someone I helped,” then the merit you gain is beyond all calculation.
+Formless Giving (Buddhism)
 
-3. Giving More to Others Makes One Richer (Daoism)
+The Buddha said: “If a bodhisattva gives without dwelling in form, the merit gained is inconceivable.”
 
-Laozi said: “The more you do for others, the more you possess yourself; the more you give to others, the more your own abundance increases.” That is: the harder you strive to help others and bring others to fulfillment, and the more you do for others, the richer you yourself become. The more generously you give to others — the more you give — the more energy, good fortune, and opportunity you yourself come to hold.
+That is: to benefit others with a selfless mind brings immeasurable blessing. If, when doing good and helping others, one does not cling to thoughts such as “I am doing a good deed,” “I want a return,” or “that person is someone I helped,” the blessing gained is beyond calculation.
 
-However Confucianism, Buddhism, and Daoism each word it, the essence is identical: if you want to make money, you must give first. What problem can you solve for someone else? What help or service can you offer? What value can you provide? Whatever it is, wealth will flow back to you naturally. This is what countless sages across the ages distilled from the cosmic Law of Cause and Effect, from energy and value exchange. It is the underlying logic of every way of making a living, and it is a truth that never changes.
+The More for Others, the More One Has (Daoism)
 
-12.1.2 Wealth Is the “Energy Voucher” Heaven Issues
+Laozi said: “The more one does for others, the more one possesses; the more one gives to others, the more one has.”
 
-You can think of it this way: wealth is the Energy Voucher and the affirmation of your conduct that Heaven issues to you after you have served others — the mission funding that lets you carry on, from that same altruistic heart, helping and serving still more people. It is the basic funding allotted to you to grow stronger, expand your scale, and serve more people, so that your altruistic conduct can be carried out smoothly.
+That is: the more you do your utmost to help others and help them succeed—the more you do for others—the richer you yourself become. The more generously you give to others, the more energy, good fortune, and opportunities you yourself possess.
 
-So please make one complete shift in how you see it:
+However the three traditions express it, their essence is the same: if you want to make money, you must first give. Whatever problem you can solve for others, whatever help or service you can provide, whatever value you can offer, wealth will naturally flow back to you. This is the summary by countless sages through the ages of energy and value exchange under the cosmic Law of Cause and Effect; it is the underlying logic of every money-making livelihood, and an eternal truth.
 
-Wealth is not the goal you chase. It is the “Energy Voucher” the cosmic bank issues to you after you have created value for others.
+12.1.2 Wealth Is Heaven’s “Energy Voucher”
 
-Remember this: every act is an energy interaction, and every act is a value exchange.
+You may understand it this way: wealth is the “energy voucher” and “affirmation of behavior” that Heaven gives you after you provide services to others, so that, holding to this altruistic heart, you may continue to offer help and services to more people—the “mission funding” allocated to you for strengthening yourself, expanding your scale, and serving more people, the basic cost needed to guarantee that your altruistic behavior is carried out smoothly.
 
-Whether you hold a job, start a business, or run a small trade, as long as you have provided someone with service, help, or value, there will be a return, a reward — that is the cosmic Law of Cause and Effect. The greater the altruistic value you create, and the more people it reaches, the more abundant and the more sustained the wealth — as the “voucher” in which that value is made manifest. Only then will your wealth grow.
+Therefore, please completely change one concept:
 
-Old cognition: Wealth = making money = the goal.
+Wealth is not the goal you chase, but the “Energy Voucher” issued by the cosmic bank after you create value for others.
 
-New cognition: Wealth = the result of value creation = Energy Voucher.
+Remember: Any action is an energy interaction and a value exchange.
 
-12.1.3 Why Can’t You Make Money When You Are Clearly Benefiting Others?
+Whether you take a job, start a business, or run a small enterprise, so long as you provide service, help, and value to others, there will be a return and a reward—this is the cosmic Law of Cause and Effect. The greater the altruistic value you create and the more people it benefits, the more abundant and sustained wealth will be as the manifestation of that value, the “receipt”—and only then will your wealth grow.
 
-Many people will push back: what I do is clearly altruistic — so why can’t I make money?
+Old Cognition: Wealth = Making Money = Goal.
 
-The answer: your purpose has changed.
+New Cognition: Wealth = The Result of Value Creation = Energy Voucher.
 
-In Chapter 2 we learned the three Cosmic Laws — Survival, Behavior, and Cause and Effect. The Law of Survival is the First Law and the precondition for practising the Law of Behavior; the Law of Cause and Effect is the final assessment and settlement of the conduct of all beings. That is: you stay alive first, and then you practise the Heavenly Way and complete your mission. As for the outcome of your conduct, Heaven assesses it automatically — was it merit or was it fault? A grant or a deduction? The system does it on its own.
+12.1.3 Why Do You Make No Money When You Are Clearly Benefiting Others?
 
-The Law of Behavior in Selfless Altruism is giving: provide value and service to others first, and the return comes after — first the cause, then the effect. Selfishness is taking, possessing, demanding. It puts the result first, and that violates the Law of Cause and Effect. So it is penalised.
+Many people may ask in return: what I do is clearly an altruistic undertaking, so why do I make no money?
 
-Any self-centred act of selfishness — above all the acts of “grabbing the better end of the deal” and “getting things for free” — is at root Material Misappropriation and energy misappropriation. It requires an equal payment of energy to settle the merit account. In any transaction, the moment you want to come out ahead at the other party’s expense and make them lose, you are committing energy misappropriation — whether you are the buyer or the seller. Heaven will automatically deduct from your Merit Assets to complete a fair exchange. Even if you gain in the short run, you have violated the Heavenly Way, so you increase your negative manifestation, and it will affect your future fortune and merit. What you gained will be given back. In the end you have nothing.
+The answer is: your purpose has changed.
 
-#### 12.2 The Truth About Reversing Your Fortune: Trust Assets and Vibrational Kin
+In Chapter 2 we learned the Three Cosmic Laws—Survival, Behavior, and Cause and Effect: the Law of Survival is the first law and the premise for practicing the Law of Behavior, and the Law of Cause and Effect is the final assessment and settlement of all behavior of all beings. That is: you first stay alive, then practice the Heavenly Way and fulfill your mission. As for the results of your behavior, Heaven will assess them for you automatically—record merit or record fault? allocate or deduct? The system completes it automatically.
 
-12.2.1 The Real Trap That Makes It Hard for Ordinary People to Make Money
+The behavioral law of Selfless Altruism is giving—first provide value and services to others, and only then is there a return; cause first, effect after. Selfishness, by contrast, is taking and possessing: you want the result first, which violates the Law of Cause and Effect and therefore incurs punishment.
 
-In the past, because goods were scarce, anyone could make money just by running errands, moving their lips, forwarding and sharing — by offering any product, service, or value in food, clothing, shelter, or transport that everyone needs.
+Any self-centered, selfish behavior, especially “loving to take advantage” and “getting things for free,” is in essence “Material Encroachment” and “Energy Encroachment,” and requires the payment of equivalent energy to complete the merit settlement. In any transaction, the moment you want to take advantage of the other party and make them lose out—whether you are the buyer or the seller—it is “Energy Encroachment,” and Heaven will automatically deduct your Merit Assets to complete a fair transaction. Even if you gain a benefit temporarily, because you have violated the Heavenly Way you add bad assets to manifestation, affecting your future wealth luck and blessings; the wealth you gained will be returned, and in the end you will have gained nothing.
 
-These days, every one of those areas has supply channels that are more professional, cheaper, and more mature. Even if you have a good product or a good project, nobody believes you when you share it, nobody buys, nobody joins in. Even if you learn to shoot videos and sell goods with AI, you still cannot convert it into income. You have no product advantage, and certainly no price advantage. So what value and service can you offer anyone? If you can offer no product, no service, no value at all — do you really think you can make money?
+#### 12.2 The Truth of the Comeback: Trust Assets and Vibrational Kin
 
-This is the hardest truth of all: you have no one left to serve.
+12.2.1 The Real Predicament That Makes It Hard for Ordinary People to Make Money
 
-For an ordinary person who wants to break the trap and reverse their fortune, there is only one road: rebuild trust, and find the people you serve. These days, ordinary people no longer have the dividends of the era. You can no longer rely on the traditional way of making money — selling a product, running a project — and there is certainly no quick money to be made. What you can do is rebuild trust and accumulate your own Trust Assets. That is the only capital an ordinary person has for turning things around in the years ahead.
+In the past, because material goods were scarce, anyone who ran errands, talked, forwarded, or shared—providing any product, service, or value in food, clothing, housing, and transport that everyone needed—could make money.
+
+Nowadays, every aspect of food, clothing, housing, and transport has more professional, cheaper, and more mature supply channels. Even if you have a good product or project, when you share it no one believes it, no one buys it, no one does it. Even if you learn to shoot videos and sell goods with AI, you still cannot monetize. You have neither a product advantage nor a price advantage—what value and service can you provide to others? If you can provide no product, service, or value at all, is it possible to make money?
+
+This is the most heart-piercing truth: there is no one left to serve.
+
+For ordinary people, there is only one way to break the deadlock and achieve a wealth comeback: re-establish trust and find your own service targets. Nowadays, ordinary people who want to make money no longer have the dividend of the times; they can no longer rely on the traditional ways of selling products and running projects, and it is even less possible to make quick money. Instead, they must re-establish trust and accumulate their own “Trust Assets”—the only capital for ordinary people to turn their lives around in the future.
 
 12.2.2 What Are Trust Assets?
 
-Put simply: your Trust Assets are the number of people who genuinely trust you.
+Trust Assets, simply put, means how many people truly trust you.
 
-Trust Assets are the converter of wealth — like the legendary money tree. By the Law of Cause and Effect and the Law of Energy Interaction: provide value and service to ten people, and you receive the wealth voucher of ten people; provide value and service to a thousand, to ten thousand, and you receive that many more wealth vouchers. And Trust Assets do not depreciate, and they cannot be taken from you by anyone else.
+Trust Assets are the “converter” of wealth, like the legendary “money tree.” According to the law of cause-and-effect energy interaction, if you provide value and services to 10 people, you receive the wealth receipts of 10 people; if you provide value and services to 1,000 or 10,000 people, you receive more wealth receipts. Moreover, Trust Assets do not depreciate and cannot be taken away by others.
 
-In the end, how much you want to make and how much you can make is decided entirely by your Trust Assets. And what that comes down to is: how many people can gain trust in you? What kind of value and service can you offer them? And can you keep offering it?
+In the end, how much you want to earn and how much you can earn is entirely determined by your “Trust Assets.” Its essence is: how many people’s trust can you win, what value and services can you provide them, and can you provide value and services continuously?
 
-12.2.3 How Do You Accumulate Trust Assets?
+12.2.3 How to Accumulate Trust Assets?
 
-There is only one way: help others with a heart of Selfless Altruism.
+There is only one way: help others with the heart of Selfless Altruism.
 
-Remember: reversal is the motion of Dao. The more selfish a person is, the more they long inside to be loved, cared for, and respected — and the more easily they are moved. First understand what the other person needs. Then, weighed against your own ability: can you offer them value and service? If you can, help them with integrity, with sincerity, and with action. Once they have benefited, they will naturally recognise you and trust you — they may even become your friend. That is how you build your Trust Assets.
+Please remember: reversal is the movement of the Dao. The more selfish people are, the more their hearts long to be loved, cared for, and respected, and the more easily they are moved. First understand the other person’s needs, and consider whether, with your abilities, you can provide them with value and services. If you can, help them with integrity, sincerity, and action; when they benefit, they will naturally recognize and trust you, and may even become your good friend—and thereby you build your Trust Assets.
 
-If you have a real skill, then whether you hold a job, start a business, or run a small trade — whatever your post or position, whether you deal with colleagues or with clients — as long as you stand in the other person’s shoes, serve them, and do your utmost to solve their actual problem so that they benefit and recognise it, you will build your personal Trust Assets. And if you have no advantage at all, how do you help? You can try the approach below.
+If you have a skill, then whether you take a job, start a business, or run a small enterprise, whatever the post or position, whether toward colleagues or customers, so long as you stand in the other’s position, serve them, and conscientiously solve their real problems, so that they benefit and recognize you, you can build your personal Trust Assets. If you have no advantage at all, how can you help? You can try the following approaches:
 
-12.2.4 Find What the Other Person Is Missing Most
+12.2.4 Finding What the Other Person Lacks Most
 
-Over these decades the economy has developed at speed, and people’s material needs have been met and secured. But in the course of developing the economy, people threw themselves into the economy and neglected the building of their inner lives. Over these decades, with profit placed above all, people have become more and more pragmatic, more and more self-centred, more and more selfish; their guard has grown heavier and heavier; between people, the most basic trust has been lost, and with it any sense of security. That is why emptiness, restlessness, pressure, panic, depression, and a lack of confidence — every kind of psychological and spiritual problem — have appeared.
+Over the past decades, the economy has developed rapidly and people’s material needs have been met and secured. But in the course of economic development, people devoted themselves to the economy while neglecting the building of spiritual civilization. For decades, people have pursued the supremacy of interests, becoming ever more pragmatic, ever more self-centered, ever more selfish, and ever more guarded; people have lost the most basic “trust” between them, and with it their sense of security. Hence the emergence of emptiness, restlessness, stress, panic, depression, self-doubt, and various other psychological and spiritual problems.
 
-People have gradually lost their faith and lost their spiritual pillar. Traditional education still sits in a lopsided, single-track orientation: it advocates materialism and rejects idealism, when the world was originally a unity of opposites. This black-or-white version of cognition is too low; it can no longer keep pace with the times, and it inevitably leads to the collapse of faith. Life has grown more prosperous, but people’s hearts have grown more and more lost.
+People have gradually lost their faith and their spiritual support, while traditional ideological education remains stuck in a one-sided extreme orientation—advocating materialism and denying idealism—whereas the world is originally a unity of opposites. That black-and-white cognitive version is too low and can no longer keep up with the rhythm of the times, inevitably leading to the collapse of belief. Life has grown affluent, yet the heart grows ever more lost.
 
-And so people have begun searching everywhere for a way to ascend in cognition, wanting to settle their hearts — but there is no door in for them. Now they worship money, now they study the Chinese classics, now Buddhism, now Daoism. They believe everything and they believe nothing. What they are seriously lacking is a sound view of life and a sound set of values.
+So people begin searching everywhere for a path to raise their cognition, wanting to settle their minds, yet finding no door—sometimes worshipping money, sometimes studying national culture, Buddhism, or Daoism; believing everything and believing nothing, severely lacking a correct outlook on life and on values.
 
-Above all, the age of AI is arriving, and the barriers to knowledge are on the brink of collapse. All human knowledge, experience, and skill can be downloaded instantly, and AI will surpass human beings across the board. In the future, humans may even start from the same “factory settings” as AI — everyone standing on the same starting line, with no essential difference in knowledge, experience, or skill between one person and another. So where does your advantage lie? Precisely here: in each person’s intuition, the power of intention, talent, and Innate Knowledge and Ability.
+Especially as the AI era arrives, the barriers of knowledge are about to collapse. Human knowledge, experience, and skills can be downloaded in an instant, and AI will comprehensively surpass human beings. In the future human beings may even have the same “factory settings” as AI, everyone standing on the same level, with no essential difference in knowledge, experience, or skills between people. Where, then, is your advantage? Precisely in each person’s intuition, thought power, gifts, and Innate Knowledge and Ability.
 
-The urgent task for humanity is to ascend in cognition — to awaken. This is the greatest need of people today. Almost everyone needs positive guidance and help, and needs teachers and guides in exactly this.
+Humanity’s urgent task is to raise cognition and awaken. This is the greatest need of people today: almost everyone needs positive guidance and help, and needs teachers who can guide them in this respect.
 
-12.2.5 How Does an Ordinary Person Take Part?
+12.2.5 How Can Ordinary People Take Part?
 
-You may ask: what does any of this have to do with me? I am an ordinary person, I can’t do anything, I don’t even understand myself yet — how could I help anyone else?
+You may ask: what does this have to do with me? I am an ordinary person who knows nothing; I have not even understood myself—how can I help others?
 
-At this point, look back at Chapter 3: have you instantly understood the true meaning of the nine great bodies of Ultimate Wisdom of humanity — Confucianism, Buddhism, Daoism, and the rest? Do you know who you are? Do you know what to do? Whether or not you have instantly understood, it is enough to know these two things:
+Here, please first review the content of Chapter 3: have you instantly understood the true meaning of the nine Ultimate Wisdoms of humanity—Confucianism, Buddhism, Daoism, and the rest? Do you know who you are, and do you know how to act? Whether or not you have instantly understood, you need only know the following two truths:
 
-First: who are you? You are made of soul and physical Carrier. Your soul is an unceasing, undying cosmic Energy Body — a part of the cosmos, an Heir of the Cosmos, a Tathagata. And your physical Carrier is made manifest by your Energy Body. Each physical Carrier has its own life cycle. When this lifetime’s physical Carrier dies, your Energy Body makes manifest a new physical Carrier — and then starts again from zero: awakening anew, connecting with your own talents and your Innate Knowledge and Ability, and carrying on the mission of the Energy Body.
+First, who are you?
 
-Second: what do you do? The mission of the cosmic Energy Body is to offer its own value and service — that is, altruism. But the Energy Body can only act through a Carrier. All the people, events, and things around you are made manifest in order to optimise the inferior Merit Assets you have accumulated lifetime after lifetime — they are there to ferry you across. They are there to make you awaken sooner; to let your physical Carrier know the truth of the cosmos and the laws of the Heavenly Way; to make you a qualified chosen one. And then, like an Heir of the Cosmos, you will govern your realm with Selfless Altruism, practise the Heavenly Way, and complete the great task and the great work. This is the calling and mission of everything in the cosmos and of every being — including you. Because each Energy Body holds a different amount of energy, each has a different reach and behaves differently. The more high-grade Merit Assets you hold, the more smoothly things go; the larger the realm you govern, the greater the responsibility and the more people you reach. Conversely, the more inferior Merit Assets you hold, the harder things go and the greater the resistance.
+You are composed of a soul and a physical carrier. Your soul is the ever-renewing, deathless Energy Body of the universe, a part of the universe, the Heir of the Cosmos, the Tathagata. And your physical carrier is manifested by your Energy Body; every physical carrier has its own life cycle, and when the physical carrier of this life dies, your Energy Body will manifest a new physical carrier and start again from zero—reawakening, connecting with its own gifts and Innate Knowledge and Ability, and continuing to fulfill the mission of the Energy Body.
 
-Once you know these things, you are like an elementary school teacher and the 99.99% of parents: you only need to hold the axiom “1+1=2” in your own mind to teach a child “1+1=2” correctly. You do not have to become a “mathematician” first — to work out why 1+1 equals 2, then apply it in practice, and only then teach the child. Once you know who you are and what to do, and once you are fluent in the six tools in this book, you are a step ahead: you apply them to your own life, you optimise your own life, and you turn them into your own knowledge, experience, and skill. At that point your cognitive awakening is complete, and you are entirely ready to guide and help others awaken. It is that simple.
+Second, how should you act?
 
-One step ahead, and you are the teacher. And you can strike from a higher dimension.
+The mission of the cosmic Energy Body is to offer its own value and services—that is, to benefit others—yet an Energy Body can only accomplish this through a carrier. All people, matters, and things exist to optimize your bad assets accumulated over countless lifetimes; they are manifested in order to deliver you, to help you awaken early, to let your physical carrier know the truth of the universe and the laws of the Heavenly Way, and to become a qualified chosen one. Then, like the Heir of the Cosmos, you will manage your realm with Selfless Altruism, practice the Heavenly Way, and complete the great task and great undertaking. This is the heavenly duty and mission of the universe and all things, of every being—including you. Because every Energy Body differs in the size of its energy, its influence and behavior differ too. The more high-quality Merit Assets you have, the more smoothly things go, the larger the realm you manage, the greater your responsibility, and the more people you reach. Conversely, the more bad Merit Assets you have, the less smoothly things go and the greater the resistance.
 
-This is not the “strong preying on the weak” of business playbooks. It is an absolute advantage in the dimension of cognition. While people on the old dimension are still chasing traffic, undercutting each other on price, and calculating against others with the standard tricks, you have already seen through the truth of wealth at its root — the altruist attracts wealth without seeking it; the selfish one seeks it and cannot get it. You no longer compete with them on the same plane. You use the trust, the energy, and the altruism of a higher dimension to rewrite the rules of the game outright.
+Once you know this, you can be like an elementary school teacher or 99.99% of parents: you only need to remember the axiom “1+1=2” yourself to correctly teach a child “1+1=2”; there is no need first to become a “mathematician,” work out why 1+1=2, and only then apply it in life and teach the child. When you know who you are, know how to act, and are proficient in the six tools of this book, you can be one step ahead, apply them in your own life, optimize your life, and turn them into your knowledge, experience, and skills. You will then have completed cognitive awakening and be fully able to guide and help others awaken—it is that simple.
 
-So how do you strike from a higher dimension? Use what you have to help more people awaken. You can form a study group. Take the e-book and the materials you received for free, and forward them to newcomers for free as well. Explain them, answer their questions, study and talk it through together, help each other. And for what you yourself have not understood or cannot yet do, organise everyone to sit in on free classes with other teachers who explain it, and to get their questions answered there too. Ask yourself: is there anything in this pure way of learning, free of any trick, that people would not accept? Is there anything they would be unwilling to try? The key is that no fee is charged at any point. It is purely a matter of helping each person awaken. You must not carry any self-serving aim in it at all. Do good, and ask nothing of the outcome. Put all your energy into the process: how to help a newcomer awaken quickly, how to help each person well. You must not think about the future result or the profit in it. Hand the result over entirely to the Law of Energy Conservation, to the system of cause and effect. This method, this way, has a name: Selfless Altruism.
+One step ahead, and you are the teacher; you can strike from a higher dimension.
 
-Once the newcomers awaken, they will share your aims in life and your values, just as you do. They become your like-minded kin — your Vibrational Kin — and together you help still more people awaken through Selfless Altruism. These awakened people become your Trust Assets — your Vibrational Kin. You can think of them as the caravan you will lead in the years ahead: the people you serve when you later move into Mutually Beneficial Altruism, and the foundation and the solid backing for reversing your fortune in the years ahead.
+This is not the “strong bullying the weak” of business tricks, but the absolute advantage of a higher cognitive dimension. While people of the old dimension are still chasing traffic, competing on price, and calculating against others with tricks, you have already seen through the truth of wealth at its root—those who benefit others attract wealth of themselves; the selfish seek and never obtain. You no longer compete with them on the same plane; with higher-dimensional trust, energy, and altruism, you directly rewrite the rules of the game.
 
-12.2.6 What Is the Vibrational Kin?
+So how do you strike from a higher dimension? You can use these skills to help more people awaken. You can set up a “study group,” forward the e-book and materials you obtained for free to newcomers free of charge, help explain and answer questions for them, learn and exchange together, and help one another. For matters you do not understand or cannot handle, you can organize everyone to attend free lectures and Q&A sessions with other teachers. Tell me: can everyone accept this purely study-oriented approach with no tricks at all? Are they willing to try it? The key is that no fee is charged at any point; it is purely helping each person awaken, absolutely without any self-serving purpose—do good deeds and do not ask about the future; put all your energy into the process, into how to help newcomers awaken quickly and how to help each person well, and absolutely do not think about future results and benefits. Leave the results entirely to the cause-and-effect system of energy conservation. This approach is: Selfless Altruism.
 
-This is covered in detail in Section 11.6. If a person wants to accomplish great things, they cannot go it alone. They must know how to borrow people, borrow momentum, borrow strength, and band together.
+When newcomers awaken, they will be like you, sharing the same life goals and values; they will become your like-minded, same-frequency people, and together you will help more people awaken with Selfless Altruism. These awakened people will become your “Trust Assets”—your “Vibrational Kin.” You may understand this as your future caravan, the “service targets” for your future services of altruism with a self, and the cornerstone and solid backing of your future comeback.
 
-The Vibrational Kin is the aggregated energy body that will help you and bring you to fulfillment in the years ahead. It is not simply a circle of friends or a contact list. It is a group of like-minded people who share your view of life and your values — a group of people who genuinely trust you and recognise you. They are the concrete manifestation of your Trust Assets, the members of your caravan, and the people who are willing to pay for your value and walk the road with you.
+12.2.6 What Are Vibrational Kin?
 
-Even the strongest hero needs three helpers. Your Vibrational Kin is like family. They can empower you with the power of vow and the power of intention, and give you a mighty charge of energy. That collective power of vow and intention becomes the ground you stand on when you act, and the driving force that gets things done. It helps you clear away the obstacles to more of your altruistic conduct. All you need to do is offer your Vibrational Kin, the members of your caravan, dedicated service and precise value — and the return of wealth becomes stable. Because there is trust, the transaction becomes simple. Because you are kin, value passes through with precision.
+They are described in detail in section 11.6. If a person wants to accomplish great things, they cannot go it alone; they must know how to “borrow people, borrow momentum, borrow strength, and band together.”
+
+Vibrational Kin are the aggregated Energy Body that can help you and fulfill you in the future. They are not simply a circle of friends or a network; they are a group of like-minded people with the same outlook on life and values as you, a group of people who truly trust you and recognize you—they are the concrete manifestation of your Trust Assets, the members of your caravan, and the people who are willing to pay for your value and move forward with you.
+
+A hero has three helpers. Your Vibrational Kin, like family, can empower you through the power of vow and thought, granting you powerful energy support. This collective power of vow and thought will become the confidence with which you act and the prime mover force with which you accomplish things, helping you dissolve obstacles in more altruistic actions. You need only provide exclusive services and precise value to your Vibrational Kin, to the members of your caravan, and stable wealth return will follow—because of trust, transactions become simple; because of resonance, value is transmitted more precisely.
 
 12.2.7 How Does Wealth Flow Back?
 
-Many of you are burning to ask: how does wealth flow back? Do you want to know, or not? If you do not want to know, then you have truly grasped the code of wealth. If you do want to know the result, then you have not understood a single thing that has been said so far. So fix this sentence deep in your heart: “Do good, and ask nothing of the outcome.” You only need to do it wholeheartedly, and never consider the result. Let the cosmic system of cause and effect settle the account for you automatically. This is what the Diamond Sutra means when it says: “If a bodhisattva clings to the mark of self... then he is not a bodhisattva.” That is: if you chase the result, you have not fulfilled the mission of the Heir of the Cosmos or of the True Self — and you have no merit.
+Perhaps you are eager to ask: how does wealth flow back? Do you want to know? Yes or no? If you do not want to know, it shows that you have truly mastered the code of wealth. If you do want to know the result, it shows that you have not understood anything said before. Please be sure to remember this sentence and engrave it deeply in your heart: “Do good deeds and do not ask about the future.” You need only do it wholeheartedly, absolutely without considering the result, and let the cosmic cause-and-effect system settle automatically for you. This is what the Diamond Sutra means by “If a bodhisattva has the mark of a self… then they are not a bodhisattva.” That is: if you pursue results, you have not fulfilled the mission of the “Heir of the Cosmos” and the “True Self,” and there is no merit.
 
-Suppose someone shares the e-book and materials of this book with you for free, and every day takes the trouble to answer your questions and clear your confusion, helping you awaken. After you have awakened — after you know the Law of Energy Conservation, and know that you may not take or misappropriate another’s energy, and after you have genuinely benefited in your life and your work — would you be willing to give the person who shared it, who answered you, who helped you, a tip, freely given, as a way of saying thank you? A specific note here: the premise is that you have already awakened and already benefited. Do you want to complete this energy interaction on your own initiative? If you know what energy dissipation leads to, you will not want to increase your own inferior Merit Assets by “owing a favour” or “owing a debt,” because that affects the course your life takes. So you will tip on your own — and you will give a little extra, let the teacher “come out ahead,” hoping they will give you a little more guidance and a little more attention down the line. Right? That is what people mean by “having the right touch,” “being emotionally intelligent,” “being a promising student.” You have learned the secret of making money.
+If someone shares the e-book and materials of this book with you free of charge, wearies himself day after day to help you resolve doubts and answer questions, and helps you awaken—then after you awaken, know the law of energy conservation, know that you must not possess or encroach on others’ energy, and have truly benefited in life and work, would you be willing to tip the sharer, the answerer, and those who helped you as you please, to express your gratitude? A special note: the premise is that you have already awakened and benefited—will you take the initiative to complete this energy interaction? If you know the consequences of “energy dissipation,” you will not increase your own bad assets and affect your fortune by “owing a favor” or “owing a debt.” So you will tip on your own initiative, and tip a little more, letting the teacher “gain a little advantage,” hoping for more guidance and care in the future—right? This is called “knowing how to handle people,” “high emotional intelligence,” “a promising student”—you have learned the secret of making money.
 
-And so: does every person who shares, every person who answers questions and clears confusion for others, receive tips or red envelopes? Does everyone get a corresponding return and income? This is the return that the system of Selfless Altruism gives back. So here is the question: now that you have awakened and benefited, are you willing to use this method to help more people — to build your Vibrational Kin, and to accumulate your own Trust Assets?
+In this way, every sharer, everyone who helps others resolve doubts and answer questions, will receive tips or red packets, will they not? Will they not obtain corresponding returns and income? This is the return given by the Selfless Altruism behavior system. May I ask: after you awaken and benefit, are you willing to use this method to help more people, build your Vibrational Kin, and accumulate your Trust Assets?
 
-12.2.8 From Tipping to Reversing Your Fortune
+12.2.8 From Tipping to the Comeback
 
-This kind of “tip, freely given” is only the return you get while you are still building your caravan. Some may say the money comes too slowly and the earnings are too small — but never forget: this is you using time to lay your own foundation and accumulate Trust Assets. It is the only “business” you can run right now without spending money and without investing anything. And it is the preparation you must make if you are to reverse your fortune later.
+This “voluntary tipping” is only the return you receive while building your caravan. Some may think the money comes slowly and is little, but never forget: this is you using time to lay your foundation and accumulate Trust Assets; it is the only “business” you can do right now without spending money or investing, and the necessary preparation for your future comeback.
 
-Day by day it accumulates. Once your caravan has grown to hundreds, to thousands, or more, will you not be able to offer them more precise products, services, and value? Will you not be able to lead them into any altruistic project of yours that also earns? Will you not be able to serve them with value over the long term — and earn over the long term?
+Day after day, when your caravan grows to hundreds, thousands, or even more, can you not provide them with more precise products, services, and value? Lead them to take part in any of your altruistic projects that can make money? Can you not provide them with value and services over the long term? Profit over the long term?
 
-That is why the Vibrational Kin is the capital for reversing your fortune in the years ahead — your “money tree.” This method is one that any ordinary person can copy, and anyone can do.
+This is why the “Vibrational Kin” are the capital of your future successful comeback, your “money tree.” This approach can be replicated by anyone, and any ordinary person can do it.
 
-And that is why the value of this book is not only to ascend and optimise your life, to teach you how to be a person and how to do things, to teach you how to reverse your fortune. It is also a money-making tool for ordinary people.
+Therefore the value of this book is not only to raise your dimension and optimize your life, to teach people how to conduct themselves and do things, and to teach people how to make a comeback, but also to be a money-making tool for ordinary people.
 
-Only when you set aside selfishness and serve others wholeheartedly will they trust you. The purer and the more sincere your altruistic conduct, the more people will trust you; the larger your Vibrational Kin, the thicker your Trust Assets; the higher the efficiency of your value exchange; and the more stable the flow of wealth back to you. The more you will make in the years ahead — and the larger your undertaking will become.
+So long as you let go of selfishness and serve others wholeheartedly with value, they will trust you. The purer and more sincere your altruistic behavior, the more people trust you, the larger your Vibrational Kin, the thicker your Trust Assets, the higher the efficiency of value exchange, the more stable the return of wealth, the more money you will make in the future, and the greater your enterprise will grow.
 
-#### 12.3 Using the RSD Analysis Tool to See Through the Essence of Any Business
+#### 12.3 Using RSD Analysis Tool to See Through the Essence of Any Business
 
-However complex a business model is, you can see through it instantly with the Dao and Li Perspective Lenses.
+However complex a business model may be, you can see through it instantly with the “Dao and Li Perspective Lenses.”
 
-Whole (2): any business project, or any act of yours.
+The Whole (2): any business project or any action of yours
 
-Dao (1): What fundamental problem does it solve for society? What need does it meet? What are its aim and its motive? (Its energy, and its original intention.)
+Dao (1): What fundamental problem does it solve for society? What need does it meet? What are its goal and motive? (Its energy and original intention)
 
-Li (1): Through what concrete method is it solved? Through what product or service is it delivered? (Its method, and its form.)
+Li (1): Through what specific methods does it solve it? Through what products or services is it realized? (Its methods and forms)
 
-Applied example (analysing a food delivery platform):
+Application Example (Analyzing a “Food Delivery Platform”):
 
-Dao (1): It meets the core need of people to “get good food fast and conveniently” (energy).
+Dao (1): Solving people’s core need to “obtain delicious food quickly and conveniently” (energy)
 
-Li (1): It is delivered through one system — the mobile app, the rider network, and restaurant partnerships (form).
+Li (1): Realized through the system of a mobile app, a rider network, and restaurant partnerships (form)
 
-Your practical assignment:
+Your Practical Assignment:
 
-Right now, use this model to analyse your current job, a plan, another person’s conduct, or a company you know well. See its Dao and its Li clearly, and you can judge whether it is creating real value — and what role you play in it.
+Immediately use this model to analyze your current work, your plans, the behavior of the other party, or a company you know best. See clearly its “Dao” and “Li,” and you will be able to judge whether it is creating real value, and what role you play within it.
 
 #### 12.4 The Three Core Operating Procedures for Career Success
 
-Fuse the RSD code of conduct into three core operating procedures for your career.
+Integrate the RSD Behavioral Code into your career.
 
-12.4.1 Operation One: Accountability (R) — Become the Most Reliable Node in the Network
+12.4.1 Operation One: Accountability (R)—Become the Most Reliable Collaborative Node
 
-To yourself: say it and do it. No excuses. Deliver results that far exceed what was expected.
+Responsibility to Yourself: Do what you say, make no excuses, and deliver results far beyond expectations.
 
-To your team: step into the gaps on your own initiative, and become the partner your colleagues trust most.
+Responsibility to the Team: Step in proactively and become the partner your colleagues trust most.
 
-To your clients: treat the client’s problem as your own, and solve it.
+Responsibility to Clients: Treat the client’s problem as your own and solve it.
 
-When you stop calculating against others, others dare to believe you — and your Trust Assets begin to accumulate.
+Only when you stop calculating against others will others dare to trust you, and only then will your Trust Assets begin to accumulate.
 
-12.4.2 Operation Two: Insight (S) — Pass Through Success and Failure, Stay Clear
+12.4.2 Operation Two: Insight (S)—Pass Through Success and Failure, Keep Clear
 
-When you meet failure: activate the RSD Rebuilding Tool, and treat it as a chance to “optimise your assets.” Do not sink into the emotion — only take the lesson from it.
+When Facing Failure: Activate RSD Rebuilding Tool and regard it as an opportunity to “optimize assets.” Do not get stuck in emotion; only learn the lesson.
 
-When you achieve success: activate the RSD Analysis Tool, and see clearly that this success is the joint result of “your own effort (Dao)” plus “the opportunity of the times and the support of your team (Li).” Do not be proud — only be grateful.
+When Achieving Success: Activate RSD Analysis Tool and see clearly that this success is the joint result of “your own effort (Dao)” and “the opportunities of the times and the team’s support (Li).” Do not be proud; only be grateful.
 
-Use the Buddhist “no-self” to shatter the “small self.” Do not treat making money off people as the aim — treat providing value to people as the aim. Stand in the other person’s position. Genuinely solve their problem, and offer real, tangible value or service. No tricks. No fleecing.
+Break the “small self” with the Buddhist “no-self,” and do not make earning others’ money your goal—instead provide value for others. Stand in the other’s position, genuinely solve problems, and offer real value or service; no tricks, no “harvesting.”
 
-12.4.3 Operation Three: Flow (D) — Merge Into the Greatest Value Stream of the Age
+12.4.3 Operation Three: Going with the Flow (D)—Merge into the Era’s Greatest Value Stream
 
-Read the great trend: watch the new demands now exploding — AI, physical and mental health, cognitive awakening.
+Identify the Great Trend: Pay attention to the new demands exploding in AI, physical and mental health, cognitive awakening, and so on.
 
-Adjust yourself: ask yourself, “How can my skill merge into this great trend and create value for society?”
+Adjust Yourself: Ask yourself: “How can my skills merge into this great trend and create value for society?”
 
-Act: aim your Accountability and your Insight at the right trend.
+Action: Apply your accountability and insight to the right trend.
 
-Follow the natural way of Daoism — “non-action, yet nothing is left undone.” Through purely altruistic conduct, draw companions to you and build your own Vibrational Kin, build your own caravan. Do not cling to the result. Like draws to like; altruism lives in symbiosis. Do not force it, do not calculate it — and the result falls into place of itself.
+With the Daoist natural way of “non-action yet nothing left undone,” attract companions through pure altruistic behavior, build your “Vibrational Kin,” and build your caravan. Do not cling to results: like attracts like, altruism coexists—no forcing, no calculating—and results come naturally, like water finding its channel.
 
-#### 12.5 Mastering Wealth: Two Laws for Becoming a “Master of Wealth”
+#### 12.5 Mastering Wealth, Two Laws for Becoming a “Master of Wealth”
 
-When wealth flows to you, you need two laws to govern it — otherwise you become its slave.
+When wealth flows to you, you need two laws to manage it, otherwise you will become its slave.
 
-12.5.1 Law One: Wealth Is a Tool, Not the Master
+12.5.1 Law One: Wealth Is a Tool, Not a Master
 
-Tell yourself: “Money is the tool with which I achieve my altruistic aims, build a good life, and care for my family.” You are the one who uses this tool in order to help more people.
+Tell yourself: “Money is the tool with which I realize altruistic goals, create a beautiful life, and care for my family.” You are the one who uses this tool to help more people.
 
-12.5.2 Law Two: Invest Continuously in Your “Merit Account”
+12.5.2 Law Two: Continuously Invest in Your “Merit Account”
 
-Use your wealth deliberately for:
+Consciously use your wealth for:
 
-Invest in yourself: learning and health.
+Investing in Yourself: learning and health
 
-Invest in your family: make the household more harmonious.
+Investing in Family: making the family more harmonious
 
-Invest in society: donate, support the public good, help others.
+Investing in Society: donating, supporting public welfare, and helping others
 
-Every one of these investments is a massive deposit of positive assets into your Merit Account. The living source of your wealth will never run dry.
+Every one of your investments is a massive deposit of positive assets into your “Merit Account”; the living source of your wealth will never dry up.
 
-#### 12.6 Tool Combination in Practice: Your Daily Career & Wealth Efficiency Booster Pack
+#### 12.6 Practical Tool Combination: Your Daily Career & Wealth Efficiency Booster Pack
 
-Now we fuse all the tools into one simple set of daily operations — your “personal energy equipment arsenal.” Call on them as each situation calls for them, and they take effect immediately.
+Now let us integrate all the tools into a simple daily routine, like your “personal energy equipment arsenal.” Invoke them at any time according to the situation, and they take effect immediately.
 
-Scenario One: On Waking Each Day, Start the Energy Interaction First
+Scenario One: When You Wake Each Day, First Initiate the Energy Interaction
 
-Tool called: the RSD Awakening Tool.
+Tool Invoked: RSD Awakening Tool
 
-Core operation: take one minute to awaken your Sovereign identity, and confirm to yourself: “I am an RSD Kin! Today I will give it my full focus and create the greatest value I can in my post!”
+Core Operation: Spend one minute awakening your sovereign identity and confirm to yourself: “I am RSD Kin! Today I will focus wholeheartedly and create maximum value in my position!”
 
 Scenario Two: Before Work or Action, Examine First
 
-Tool called: the RSD Analysis Tool.
+Tool Invoked: RSD Analysis Tool
 
-Core operation: pause. Switch on the Dao and Li Perspective Lenses, and ask yourself two questions: 1. What is the core purpose, the driving force, the motive (Dao) of this matter? 2. What is the correct method (Li) for resolving it? See it clearly — then act.
+Core Operation: Pause. Activate the “Dao and Li Perspective Lenses” and ask yourself two questions: 1. What is the core purpose, driving force, and motive (Dao) of this matter? 2. What is the correct method (Li) to solve it? See clearly, then act.
 
-Scenario Three: When You Meet Failure or Criticism and Your Mood Drops
+Scenario Three: When You Fail or Are Criticized and Feel Low
 
-Tool called: the RSD Rebuilding Tool.
+Tool Invoked: RSD Rebuilding Tool
 
-Core operation: run the standard procedure immediately. R — Accountability (I take full responsibility); S — Insight and Action (see the essence, take one constructive step); D — Flow (after acting, let go of your obsession with the outcome).
+Core Operation: Immediately execute the standard procedure. R—Accountability (I take full responsibility); S—Insight and Action (see the essence, make one constructive move); D—Going with the Flow (after acting, let go of fixation on the result).
 
-Scenario Four: When You Feel Weary, Anxious, or Short on Energy — Recharge in Time
+Scenario Four: When You Feel Tired, Anxious, or Low on Energy, Recharge in Time
 
-Tool called: the RSD Charging Tool.
+Tool Invoked: RSD Charging Tool
 
-Core operation: take three to five minutes of energy breathing. As you inhale, say silently: “Positive energy, empower me!” As you exhale, say silently: “Negative energy, stay away!” Clear out the emotional rubbish quickly, and replenish your energy.
+Core Operation: Spend three to five minutes on energy breathing. Inhale while silently saying “Positive energy empowers me”; exhale while silently saying “Negative energy leaves me.” Quickly clear emotional clutter and replenish energy.
 
-Scenario Five: When You Feel Tension or Discomfort in Body or Mind — Unblock in Time
+Scenario Five: When You Feel Body-Mind Tension or Discomfort, Unblock in Time
 
-Tool called: the RSD Observation Tool.
+Tool Invoked: RSD Observation Tool
 
-Core operation: when you feel any discomfort, treat it as a chance to practise attention. Gently turn your attention toward the area where you feel it, and experience it with an attitude of observation, not confrontation. You can say silently: “I feel some discomfort here. Please help me relax and unblock.” (This is a soothing practice. If the discomfort persists or worsens, please rest promptly or consult a doctor.)
+Core Operation: Whenever you feel any discomfort, take it as an opportunity to practice attention. Gently turn your attention to the area of sensation and experience it with an attitude of observation rather than confrontation. You may silently say: “I feel some discomfort here; please help me relax and unblock.” (This is a soothing practice; if the discomfort persists or worsens, please rest in time or consult a doctor.)
 
 Scenario Six: When You Receive Income, a Bonus, or Any Inflow
 
-Tool called: the RSD Navigation Tool.
+Tool Invoked: RSD Navigation Tool
 
-Core operation: once the return arrives, switch on the Navigator immediately and preset the energy course. Give the instruction clearly: “I will use this income for learning, health, the public good, and altruistic acts.” Set it as the dedicated tool for “Merit Appreciation” — the ultimate navigational wisdom for locking in the energy of wealth and keeping it in circulation.
+Core Operation: After receiving the return, immediately activate the Navigation Tool and preset the energy course. Clear instruction: “I will use this income for learning / health / public welfare / altruistic acts.” Preset it as a dedicated tool for “Merit Appreciation”; this is the ultimate navigation wisdom for locking in wealth energy and keeping it circulating.
 
 [ Chapter Summary ]
 
-Once you have truly read RSD Life OS, you will see through the truth of wealth completely: the altruist attracts wealth without seeking it; the selfish one seeks it and cannot get it.
+After reading RSD Life OS, you will thoroughly understand the truth of wealth: those who benefit others attract wealth of themselves; the selfish seek and never obtain.
 
-And you will understand:
+You will understand:
 
-Wealth was never a matter of luck. It comes from grasping this underlying logic and doing the work: providing value and service to others.
+Wealth has never come from luck, but from mastering this underlying logic and providing value and services to others through hard work
 
-The ordinary person’s reversal never comes from an overnight windfall. It comes from Trust Assets accumulated day by day.
+The comeback of ordinary people never comes from getting rich overnight, but from Trust Assets accumulated day after day
 
-And once your caravan is strong, wealth and reversal come on their own.
+Once you possess a powerful caravan, wealth and your comeback will come naturally
