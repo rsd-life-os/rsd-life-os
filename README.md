@@ -2,8 +2,6 @@
 
 **RSD Skill — install this life operating system into your AI.**
 
-**All 16 chapters and 4 video walkthroughs are inside — opened only when needed, never all at once.**
-
 - **Lost, without direction** — it points the way and tells you what to do.
 - **Empty, anxious, no sense of security** — it helps you fully rebuild your confidence.
 - **Practicing, but can't find the door** — it lets you instantly understand the true meaning of humanity's nine bodies of ultimate wisdom.
@@ -31,6 +29,8 @@ Little do you know: the knowledge, experience, and skills of all your past lives
 It is not a new religion, philosophy, or school of thought — still less a path of personal insight like the School of Mind or the School of Principle. You need not pore over classics until your hair turns white, still less cultivate and prove your way to awakening. It is a plug-and-play rapid-awakening tool, fully stripped of religion, mysticism, philosophical speculation, and politics. By simplifying the complex, it aims to give every ordinary person a cognitive framework for understanding and applying the "crystallized wisdom of humanity" — to let you fully understand what "everything I need is already prepared for me" truly means, and to put all things to work for you.
 
 The book **also** distills six practical tools for optimizing life — each one a carry-on instrument for whatever reality throws at you.
+
+**All 16 chapters and 4 video walkthroughs are inside — opened only when needed, never all at once.**
 
 ## What it answers
 
