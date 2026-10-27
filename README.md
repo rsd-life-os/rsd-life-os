@@ -2,7 +2,7 @@
 
 **RSD Skill — install this life operating system into your AI.**
 
-All 19 chapters and 4 video transcripts are inside — loaded only when needed, never all at once.
+**All 16 chapters and 4 video walkthroughs are inside — opened only when needed, never all at once.**
 
 - **Lost, without direction** — it points the way and tells you what to do.
 - **Empty, anxious, no sense of security** — it helps you fully rebuild your confidence.
@@ -14,9 +14,7 @@ All 19 chapters and 4 video transcripts are inside — loaded only when needed, 
 - **Afraid of AI** — it teaches you to ride AI and be its master.
 - **Addicted to smoke, drink, games, phone-scrolling** — it teaches you how to let the addiction go back the way it came — for good.
 
-These nine kinds of people are, at root, one and the same problem: no matter how hard you try, things never turn out the way you want. Why? Because your direction is all wrong — and so is your method.
-
-This is not just a book. It is your life optimization system — your Underdog Code.
+**This is not just a book. It is your life optimization system — your Underdog Code.**
 
 As AI advances and agents become universal, the knowledge barrier will break. People will no longer differ in knowledge, experience, or skill — and especially as brain-computer interfaces and neural networks develop and spread, humans will have the same "factory settings" as robots, preloaded with the same knowledge and skills. Everyone standing on the same starting line — so ask yourself: where is your edge? It is each person's intuition, power of intention, and talent: what Mencius called *Innate Knowledge and Ability*. That is your core competitive edge. And for AI safety, only humanity's collective consciousness can restrain it. So humanity's urgent task is to awaken fast — to connect with your Energy Body. This is no longer one person's need. It is the need of all humanity.
 
