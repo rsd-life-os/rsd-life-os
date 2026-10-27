@@ -2,7 +2,7 @@
 
 **RSD Skill — install this life operating system into your AI.**
 
-**If any one of these is you, this was written for you:**
+All 19 chapters and 4 video transcripts are inside — loaded only when needed, never all at once.
 
 - **Lost, without direction** — it points the way and tells you what to do.
 - **Empty, anxious, no sense of security** — it helps you fully rebuild your confidence.
