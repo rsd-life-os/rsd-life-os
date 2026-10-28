@@ -8,7 +8,7 @@ If you have understood this book, truly grasping the essence of “Everything I 
 
 Helping others awaken is “Dharma Giving,” and its rewards far exceed donating any material wealth. Not only does it rapidly increase your Merit Assets, but it also helps you build your “Vibrational Kin” — your most valuable “Trust Asset” and the cornerstone of your future success.
 
-Warm Reminder: Any behavior is energy interaction and value exchange.Please do not, through Material Encroachment, diminish your own Merit Assets or increase negative manifestation.
+Warm Reminder: Any behavior is energy interaction and value exchange. Please do not, through Material Encroachment, diminish your own Merit Assets or increase negative manifestation.
 
 If you have benefited from this book, please be sure to consciously and proactively tip and thank the person who shared it with you, as well as those who helped resolve your doubts and answer your questions (any amount, no limit), and thereby complete this energy interaction. Please first make this book your own asset; then share it with others, help more people awaken, and build your own caravan.
 
