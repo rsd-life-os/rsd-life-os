@@ -89,10 +89,6 @@ This skill is a **companion to the book, not a replacement for it**. It indexes 
 - **It does not recruit, sell, or promote.** No products, no downline, no membership funnel.
 - **No guarantees of effects.** Results stem from how accurately, frequently, and consistently the system is practiced.
 
-## The Book
-
-*RSD Life OS* and 《RSD人生优化系统》 are available worldwide through Amazon, IngramSpark, Draft2Digital, and BookVault. Search the title.
-
 ## License
 
 [CC BY-NC-SA 4.0](LICENSE) — Creative Commons Attribution-NonCommercial-ShareAlike 4.0.
@@ -102,3 +98,7 @@ Free to share and adapt with attribution, for non-commercial purposes only; deri
 ## Provenance
 
 *RSD Life OS* (《RSD人生优化系统》), by **Gu Yang (RSD Kin)**. Copyright held by the author. English edition published by Movement Publishing (January 2026); this skill reflects the author's updated text (October 2026 edition).
+
+## Want the Book?
+
+*RSD Life OS* (English) and 《RSD人生优化系统》 (Chinese) are published worldwide — search the title to find them.
