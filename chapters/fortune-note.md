@@ -16,8 +16,8 @@ If you have benefited from this book, please be sure to consciously and proactiv
 
 If you haven’t fully grasped the book and still have questions, please read it a few more times. You may also seek guidance from fellow RSD Kin in the “Vibrational Kin”— they will be happy to help clarify your doubts.
 
-1. If you need help, you may try: RSDKin@outlook.com
+• If you need help, you may try: RSDKin@outlook.com
 
-2. If you use an AI agent, search “rsd-life-os” on GitHub, download and install RSD Skill — it will help you resolve your doubts and work through your problems.
+(a reply is not guaranteed)
 
-(Response not guaranteed)
+• If you use an AI agent, search “rsd-life-os” on GitHub, download and install RSD Skill — it will help answer your questions and work through problems.
